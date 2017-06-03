@@ -29,12 +29,12 @@
 <br>【節目名稱】：講東講西.2017-06-02
 <br>【節目頻道】：926
 <br>【節目日期】：2017-06-02
-<br>【節目主持】： | | 
-<br>【節目話題】：
+<br>【節目主持】：王兆俊 | 胡世傑 | 劉奇諾
+<br>【節目話題】：不同年代需要什麼樣的男人
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-06-02
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205308951
+<br>【MediaFire】：http://adf.ly/1moOib
+<br>【MediaFire】：http://www.linkbucks.com/BCM8u
 <br>【友情提示】：因節目源問題，存在爆破音，非常抱歉
