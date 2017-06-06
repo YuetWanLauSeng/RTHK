@@ -34,7 +34,7 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-06-05
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205750751
+<br>【MediaFire】：http://adf.ly/1mqctS
+<br>【MediaFire】：http://www.linkbucks.com/BM01z
 <br>【友情提示】：因節目源問題，存在爆破音，非常抱歉
