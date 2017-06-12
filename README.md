@@ -24,12 +24,12 @@
 <br>【MediaFire】：http://adf.ly/1muXsH
 <br>【MediaFire】：http://www.linkbucks.com/BcU0B
 
-<br>【節目名稱】：2000靚歌再重聚.2017-06-1
+<br>【節目名稱】：2000靚歌再重聚.2017-06-11
 <br>【節目頻道】：948
 <br>【節目主持】：區瑞強
 <br>【節目時間】：21:00 - 24:00
 <br>【檔案名稱】：Reunion.2017-06-11
 <br>【節目版本】：非剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206985299
+<br>【MediaFire】：http://adf.ly/1mvER3
+<br>【MediaFire】：http://www.linkbucks.com/Bedzv
