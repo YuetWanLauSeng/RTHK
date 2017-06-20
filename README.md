@@ -4,34 +4,36 @@
 
 <br>【友情提示】：因節目源問題，存在爆破音，非常抱歉
 
-<br>【節目名稱】：舊日的足跡.2017-06-18
+<br>【節目名稱】：瘋Show快活人.2017-06-19
+<br>【節目頻道】：948
+<br>【節目日期】：2017-06-19
+<br>【節目主持】：貴花田 | 曾志豪 | 王耀祖 | 斌仔 | 黃天頤 | 波盛
+<br>【節目時間】：10:00 - 13:00
+<br>【檔案名稱】：Crazy And Happy.2017-06-19
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208258348
+<br>【MediaFire】：http://adf.ly/1n2SSu
+<br>【MediaFire】：http://www.linkbucks.com/CG8BQ
+
+<br>【節目名稱】：開心日報.2017-06-19
 <br>【節目頻道】：926
-<br>【節目主持】：車淑梅
-<br>【節目嘉賓】：張宇人
-<br>【節目時間】：08:00 - 10:00
-<br>【檔案名稱】：HK Footpath.2017-06-18
-<br>【節目版本】：非剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208015232
-<br>【MediaFire】：http://adf.ly/1n0b0N
-<br>【MediaFire】：http://www.linkbucks.com/B7WXq
+<br>【節目日期】：2017-06-19
+<br>【節目主持】：何守信 | 陳淑蘭 | 林超榮 | 丹尼爾 | 黃天頤 | 波盛
+<br>【節目時間】：11:00 - 12:00
+<br>【檔案名稱】：Happy Daily.2017-06-19
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208256230
+<br>【MediaFire】：http://adf.ly/1n2STg
+<br>【MediaFire】：http://www.linkbucks.com/CG78q
 
-<br>【節目名稱】：講東講西.2017-06-18
-<br>【節目頻道】：948
-<br>【節目主持】：盧偉力 | 馬鼎盛 | 馬恩賜
-<br>【節目話題】：軟實力
-<br>【節目時間】：10:00 - 12:00
-<br>【檔案名稱】：Free As The Wind.2017-06-18
-<br>【節目版本】：剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208020569
-<br>【MediaFire】：http://adf.ly/1n0azm
-<br>【MediaFire】：http://www.linkbucks.com/B7OqQ
-
-<br>【節目名稱】：2000靚歌再重聚.2017-06-18
-<br>【節目頻道】：948
-<br>【節目主持】：區瑞強
-<br>【節目時間】：21:00 - 24:00
-<br>【檔案名稱】：Reunion.2017-06-18
-<br>【節目版本】：非剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208107395
-<br>【MediaFire】：http://adf.ly/1n1Rq0
-<br>【MediaFire】：http://www.linkbucks.com/CCUx2
+<br>【節目名稱】：講東講西.2017-06-19
+<br>【節目頻道】：926
+<br>【節目日期】：2017-06-19
+<br>【節目主持】：馬鼎盛 | 馬恩賜 | 周軼君
+<br>【節目話題】：國師與智囊
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：Free As The Wind.2017-06-19
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208270223
+<br>【MediaFire】：http://adf.ly/1n2SSA
+<br>【MediaFire】：http://www.linkbucks.com/CG8Cn
