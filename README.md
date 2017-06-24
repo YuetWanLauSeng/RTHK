@@ -40,9 +40,9 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：World Discovery.2017-06-24
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208893155
+<br>【MediaFire】：http://adf.ly/1n75b8
+<br>【MediaFire】：http://www.linkbucks.com/ApB9
 
 <br>【節目名稱】：古今風雲人物.2017-06-24
 <br>【節目頻道】：926
@@ -50,6 +50,6 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：People.2017-06-24
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208893497
+<br>【MediaFire】：http://adf.ly/1n75R6
+<br>【MediaFire】：http://www.linkbucks.com/DuUB
