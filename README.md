@@ -32,6 +32,6 @@
 <br>【節目時間】：21:00 - 24:00
 <br>【檔案名稱】：Reunion.2017-06-25
 <br>【節目版本】：非剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208996571
+<br>【MediaFire】：http://adf.ly/1n8Qti
+<br>【MediaFire】：http://www.linkbucks.com/Artpy
