@@ -50,6 +50,6 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：People.2017-07-01
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210002571
+<br>【MediaFire】：http://adf.ly/1nDnQ5
+<br>【MediaFire】：http://www.linkbucks.com/AtHay
