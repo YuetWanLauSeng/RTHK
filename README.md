@@ -37,14 +37,25 @@
 <br>【MediaFire】：http://adf.ly/1nFsN4
 <br>【MediaFire】：http://www.linkbucks.com/At6vR
 
+<br>【節目名稱】：《廿年》第二集：焗「住」
+<br>【節目頻道】：926
+<br>【節目日期】：2017-07-04
+<br>【節目時間】：23:00 - 24:00
+<br>【檔案名稱】：《廿年》第二集：焗「住」
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210301273
+<br>【MediaFire】：http://adf.ly/1nGQoo
+<br>【MediaFire】：http://www.linkbucks.com/AtvDh
+
 <br>【節目名稱】：講東講西.2017-07-04
 <br>【節目頻道】：926
 <br>【節目日期】：2017-07-04
-<br>【節目主持】： | | 
-<br>【節目話題】：
-<br>【節目時間】：23:00 - 01:00
+<br>【節目主持】：岑逸飛 | 胡世傑
+<br>【節目嘉賓】：馮檢基
+<br>【節目話題】：居住與房屋
+<br>【節目時間】：00:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-07-04
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210311412
+<br>【MediaFire】：http://adf.ly/1nGQpX
+<br>【MediaFire】：http://www.linkbucks.com/AtvDb
