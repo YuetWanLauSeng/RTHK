@@ -43,9 +43,9 @@
 <br>【節目時間】：23:00 - 24:00
 <br>【檔案名稱】：《廿年》第八集：回流
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211413432
+<br>【MediaFire】：http://adf.ly/1nOrRq
+<br>【MediaFire】：http://www.linkbucks.com/AvITp
 
 <br>【節目名稱】：講東講西.2017-07-12
 <br>【節目頻道】：926
@@ -55,6 +55,6 @@
 <br>【節目時間】：00:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-07-12
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211413432
+<br>【MediaFire】：http://adf.ly/1nOrSa
+<br>【MediaFire】：http://www.linkbucks.com/AvITZ
