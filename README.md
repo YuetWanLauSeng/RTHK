@@ -4,58 +4,67 @@
 
 <br>【友情提示】：因節目源問題，存在爆破音，非常抱歉
 
-<br>【節目名稱】：瘋Show快活人.2017-07-14
-<br>【節目頻道】：948
-<br>【節目日期】：2017-07-14
-<br>【節目主持】：貴花田 | 曾志豪 | 王耀祖 | 斌仔 | 黃天頤 | 波盛
-<br>【節目時間】：10:00 - 13:00
-<br>【檔案名稱】：Crazy And Happy.2017-07-14
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211801423
-<br>【MediaFire】：http://adf.ly/1nQwKG
-<br>【MediaFire】：http://www.linkbucks.com/Av8J2
-
-<br>【節目名稱】：開心日報.2017-07-14
+<br>【節目名稱】：香港家書.2017-07-15
 <br>【節目頻道】：926
-<br>【節目日期】：2017-07-14
-<br>【節目主持】：何守信 | 陳淑蘭 | 林超榮 | 丹尼爾 | 黃天頤 | 波盛
-<br>【節目時間】：10:20 - 12:00
-<br>【檔案名稱】：Happy Daily.2017-07-14
+<br>【節目主持】：蕭洛汶 | 陳顥之
+<br>【節目時間】：09:00 - 09:20
+<br>【檔案名稱】：HK Letter.2017-07-15
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211802376
-<br>【MediaFire】：http://adf.ly/1nQwJh
-<br>【MediaFire】：http://www.linkbucks.com/Av8IT
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211998657
+<br>【MediaFire】：http://adf.ly/1nRgQh
+<br>【MediaFire】：http://www.linkbucks.com/AvuKX
+<br>【百度網盤】：http://adf.ly/1nRgNV
+<br>【百度網盤】：http://www.linkbucks.com/AvuLP
+<br>【百度密碼】：eazt
 
-<br>【節目名稱】：守下留情.2017-07-14
-<br>【節目頻道】：948
-<br>【節目日期】：2017-07-14
-<br>【節目主持】：劉偉恆 | 梁禮勤 | 阿一
-<br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：SeeSaw.2017-07-14
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211803236
-<br>【MediaFire】：http://adf.ly/1nQwZH
-<br>【MediaFire】：http://www.linkbucks.com/Av74u
-
-<br>【節目名稱】：《廿年》第十集：那年的集體眼淚
+<br>【節目名稱】：十萬八千里.2017-07-15
 <br>【節目頻道】：926
-<br>【節目日期】：2017-07-14
-<br>【節目時間】：23:00 - 24:00
-<br>【檔案名稱】：廿年
-<br>【節目版本】：剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211883081
-<br>【MediaFire】：http://adf.ly/1nQwmQ
-<br>【MediaFire】：http://www.linkbucks.com/Av7gm
-
-<br>【節目名稱】：講東講西.2017-07-14
-<br>【節目頻道】：926
-<br>【節目日期】：2017-07-14
-<br>【節目主持】：王兆俊 | 胡世傑
-<br>【節目嘉賓】：田北俊
-<br>【節目話題】：2003年的記憶
-<br>【節目時間】：00:00 - 01:00
-<br>【檔案名稱】：Free As The Wind.2017-07-14
+<br>【節目主持】：陸宇光 | 譚永暉
+<br>【節目時間】：11:00 - 12:00
+<br>【檔案名稱】：World In A Nutshell.2017-07-15
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211883741
-<br>【MediaFire】：http://adf.ly/1nQwmi
-<br>【MediaFire】：http://www.linkbucks.com/Av7fn
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211998709
+<br>【MediaFire】：http://adf.ly/1nRgR4
+<br>【MediaFire】：http://www.linkbucks.com/AvuKW
+<br>【百度網盤】：http://adf.ly/1nRgOH
+<br>【百度網盤】：http://www.linkbucks.com/AvuKn
+<br>【百度密碼】：a49v
+
+<br>【節目名稱】：五十年後.2017-07-15
+<br>【節目頻道】：926
+<br>【節目主持】：葉國華
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：50 Years After.2017-07-15
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211998625
+<br>【MediaFire】：http://adf.ly/1nRgRS
+<br>【MediaFire】：http://www.linkbucks.com/AvuKV
+<br>【百度網盤】：http://adf.ly/1nRgOy
+<br>【百度網盤】：http://www.linkbucks.com/AvuKi
+<br>【百度密碼】：u5zy
+
+<br>【節目名稱】：旅遊樂園.2017-07-15
+<br>【節目頻道】：926
+<br>【節目主持】：張建浩 | 劉蓮 | 區凱聲 | Zeno
+<br>【節目時間】：16:00 - 18:00
+<br>【檔案名稱】：World Discovery.2017-07-15
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211998694
+<br>【MediaFire】：http://adf.ly/1nRgRn
+<br>【MediaFire】：http://www.linkbucks.com/AvuKN
+<br>【百度網盤】：http://adf.ly/1nRgPL
+<br>【百度網盤】：http://www.linkbucks.com/AvuKh
+<br>【百度密碼】：eq3n
+
+<br>【節目名稱】：古今風雲人物.2017-07-15
+<br>【節目頻道】：926
+<br>【節目主持】：張偉國 | 麥勁生 | 曾卓然 | 羅永生
+<br>【節目時間】：20:00 - 20:30
+<br>【檔案名稱】：People.2017-07-15
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211998671
+<br>【MediaFire】：http://adf.ly/1nRgS4
+<br>【MediaFire】：http://www.linkbucks.com/AvuKL
+<br>【百度網盤】：http://adf.ly/1nRgPu
+<br>【百度網盤】：http://www.linkbucks.com/AvuKc
+<br>【百度密碼】：xg9x
