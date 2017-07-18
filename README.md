@@ -54,12 +54,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-07-18
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212330025
+<br>【MediaFire】：http://adf.ly/1nTiEx
+<br>【MediaFire】：http://www.linkbucks.com/AwFxY
+<br>【百度網盤】：http://adf.ly/1nTiFr
+<br>【百度網盤】：http://www.linkbucks.com/AwFwv
+<br>【百度密碼】：8eky
 
 <br>【節目名稱】：音樂情人.2017-07-18
 <br>【節目頻道】：926
