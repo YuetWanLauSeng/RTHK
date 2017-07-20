@@ -68,12 +68,12 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-07-20
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212946033
+<br>【MediaFire】：http://adf.ly/1nVe0l
+<br>【MediaFire】：http://www.linkbucks.com/AxTFT
+<br>【百度網盤】：http://adf.ly/1nVe1b
+<br>【百度網盤】：http://www.linkbucks.com/AxTE1
+<br>【百度密碼】：a5ah
 
 <br>【節目名稱】：講東講西.2017-07-20
 <br>【節目頻道】：926
