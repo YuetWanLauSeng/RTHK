@@ -26,12 +26,12 @@
 <br>【節目時間】：10:00 - 13:00
 <br>【檔案名稱】：Crazy And Happy.2017-07-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213092226
+<br>【MediaFire】：http://adf.ly/1nW6RP
+<br>【MediaFire】：http://www.linkbucks.com/AxTPi
+<br>【百度網盤】：http://adf.ly/1nW6N7
+<br>【百度網盤】：http://www.linkbucks.com/AxTfj
+<br>【百度密碼】：29w3
 
 <br>【節目名稱】：守下留情.2017-07-21
 <br>【節目頻道】：948
