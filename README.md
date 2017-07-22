@@ -43,16 +43,16 @@
 <br>【百度網盤】：http://adf.ly/1nWuzA
 <br>【百度網盤】：http://www.linkbucks.com/Aw6oZ
 <br>【百度密碼】：hqqr
-
+        
 <br>【節目名稱】：旅遊樂園.2017-07-22
 <br>【節目頻道】：926
 <br>【節目主持】：張建浩 | 劉蓮 | 區凱聲 | Zeno
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：World Discovery.2017-07-22
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213225953
+<br>【MediaFire】：http://adf.ly/1nX9we
+<br>【MediaFire】：http://www.linkbucks.com/AxCtK
+<br>【百度網盤】：http://adf.ly/1nX9xC
+<br>【百度網盤】：http://www.linkbucks.com/AxCrS
+<br>【百度密碼】：n6j2
