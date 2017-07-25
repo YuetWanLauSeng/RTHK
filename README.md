@@ -8,7 +8,7 @@
 <br>【節目名稱】：開心日報.2017-07-25
 <br>【節目頻道】：926
 <br>【節目日期】：2017-07-25
-<br>【節目主持】：何守信 | 陳淑蘭 | 林超榮 | 丹尼爾 | 黃天頤 | 波盛
+<br>【節目主持】：何守信 | 陳淑蘭 | 林超榮 | 丹尼爾 | 杜雯惠
 <br>【節目時間】：10:20 - 12:00
 <br>【檔案名稱】：Happy Daily.2017-07-25
 <br>【節目版本】：未剪輯版
@@ -54,12 +54,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-07-25
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213652474
+<br>【MediaFire】：http://adf.ly/1nZgAx
+<br>【MediaFire】：http://www.linkbucks.com/Ax4RF
+<br>【百度網盤】：http://adf.ly/1nZgCe
+<br>【百度網盤】：http://www.linkbucks.com/Ax4Qa
+<br>【百度密碼】：gkp1
 
 <br>【節目名稱】：音樂情人.2017-07-25
 <br>【節目頻道】：926
@@ -68,12 +68,12 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-07-25
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213652446
+<br>【MediaFire】：http://adf.ly/1nZgBk
+<br>【MediaFire】：http://www.linkbucks.com/Ax4Q1
+<br>【百度網盤】：http://adf.ly/1nZgEG
+<br>【百度網盤】：http://www.linkbucks.com/Ax4QA
+<br>【百度密碼】：3r4q
 
 <br>【節目名稱】：講東講西.2017-07-25
 <br>【節目頻道】：926
