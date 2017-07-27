@@ -26,12 +26,12 @@
 <br>【節目時間】：10:00 - 13:00
 <br>【檔案名稱】：Crazy And Happy.2017-07-27
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213876255
+<br>【MediaFire】：http://adf.ly/1nb98K
+<br>【MediaFire】：http://www.linkbucks.com/AtycQ
+<br>【百度網盤】：http://adf.ly/1nb9Aq
+<br>【百度網盤】：http://www.linkbucks.com/AuGtM
+<br>【百度密碼】：x5uf
 
 <br>【節目名稱】：守下留情.2017-07-27
 <br>【節目頻道】：948
@@ -40,12 +40,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-07-27
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213876410
+<br>【MediaFire】：http://adf.ly/1nb97m
+<br>【MediaFire】：http://www.linkbucks.com/AwifR
+<br>【百度網盤】：http://adf.ly/1nb9Bx
+<br>【百度網盤】：http://www.linkbucks.com/AwQjk
+<br>【百度密碼】：enz4
 
 <br>【節目名稱】：恬淡情懷.2017-07-27
 <br>【節目頻道】：926
