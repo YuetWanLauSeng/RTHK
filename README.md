@@ -78,14 +78,15 @@
 <br>【節目名稱】：講東講西.2017-07-27
 <br>【節目頻道】：926
 <br>【節目日期】：2017-07-27
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：鄧達智 | 馬恩賜 | 唐嘉碧
+<br>【節目嘉賓】：何偉成師父
+<br>【節目話題】：粵菜冠軍話順德
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-07-27
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213911550
+<br>【MediaFire】：http://adf.ly/1nbcUB
+<br>【MediaFire】：http://www.linkbucks.com/AyRka
+<br>【百度網盤】：http://adf.ly/1nbcPt
+<br>【百度網盤】：http://www.linkbucks.com/AySRw
+<br>【百度密碼】：6tjj
