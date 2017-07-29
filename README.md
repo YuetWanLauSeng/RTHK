@@ -5,88 +5,67 @@
 <br>【更多節目請瀏覽】：https://github.com/YuetWanLauSeng/RTHK
 <br>【友情提示】：感謝 Hanransyan 提供解決爆破音辦法
 
-<br>【節目名稱】：開心日報.2017-07-28
+<br>【節目名稱】：香港家書.2017-07-29
 <br>【節目頻道】：926
-<br>【節目日期】：2017-07-28
-<br>【節目主持】：何守信 | 陳淑蘭 | 林超榮 | 丹尼爾 | 杜雯惠
-<br>【節目時間】：10:20 - 12:00
-<br>【檔案名稱】：Happy Daily.2017-07-28
+<br>【節目主持】：蕭洛汶 | 陳顥之
+<br>【節目時間】：09:00 - 09:20
+<br>【檔案名稱】：HK Letter.2017-07-29
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213948207
-<br>【MediaFire】：http://adf.ly/1nbj0b
-<br>【MediaFire】：http://www.linkbucks.com/AyQDf
-<br>【百度網盤】：http://adf.ly/1nbizn
-<br>【百度網盤】：http://www.linkbucks.com/AyQLH
-<br>【百度密碼】：sf5u
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214014817
+<br>【MediaFire】：http://adf.ly/1ncdlR
+<br>【MediaFire】：http://www.linkbucks.com/AzIjg
+<br>【百度網盤】：http://adf.ly/1ncdmi
+<br>【百度網盤】：http://www.linkbucks.com/AzIhV
+<br>【百度密碼】：z3gp
 
-<br>【節目名稱】：瘋Show快活人.2017-07-28
-<br>【節目頻道】：948
-<br>【節目日期】：2017-07-28
-<br>【節目主持】：貴花田 | 曾志豪 | 王耀祖 | 斌仔 | 黃天頤 | 波盛
-<br>【節目時間】：10:00 - 13:00
-<br>【檔案名稱】：Crazy And Happy.2017-07-28
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213966155
-<br>【MediaFire】：http://adf.ly/1nbvyn
-<br>【MediaFire】：http://www.linkbucks.com/AyZOg
-<br>【百度網盤】：http://adf.ly/1nbvwR
-<br>【百度網盤】：http://www.linkbucks.com/AyZPa
-<br>【百度密碼】：n9h7
-
-<br>【節目名稱】：守下留情.2017-07-28
-<br>【節目頻道】：948
-<br>【節目日期】：2017-07-28
-<br>【節目主持】：劉偉恆 | 梁禮勤 | 阿一
-<br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：SeeSaw.2017-07-28
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213966423
-<br>【MediaFire】：http://adf.ly/1nbvyJ
-<br>【MediaFire】：http://www.linkbucks.com/AyZOr
-<br>【百度網盤】：http://adf.ly/1nbvxB
-<br>【百度網盤】：http://www.linkbucks.com/AyZPG
-<br>【百度密碼】：agg8
-
-<br>【節目名稱】：恬淡情懷.2017-07-28
+<br>【節目名稱】：十萬八千里.2017-07-29
 <br>【節目頻道】：926
-<br>【節目日期】：2017-07-28
-<br>【節目主持】：鄧慧詩
-<br>【節目時間】：20:00 - 21:00
-<br>【檔案名稱】：Subtle Sensuality.2017-07-28
+<br>【節目主持】：陸宇光 | 譚永暉
+<br>【節目時間】：11:00 - 12:00
+<br>【檔案名稱】：World In A Nutshell.2017-07-29
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213977676
-<br>【MediaFire】：http://adf.ly/1nc5dE
-<br>【MediaFire】：http://www.linkbucks.com/AyeSa
-<br>【百度網盤】：http://adf.ly/1nc5eb
-<br>【百度網盤】：http://www.linkbucks.com/AyeTA
-<br>【百度密碼】：8krq
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214014854
+<br>【MediaFire】：http://adf.ly/1ncdlk
+<br>【MediaFire】：http://www.linkbucks.com/AzIio
+<br>【百度網盤】：http://adf.ly/1ncdmA
+<br>【百度網盤】：http://www.linkbucks.com/AzIh4
+<br>【百度密碼】：tsid
 
-<br>【節目名稱】：音樂情人.2017-07-28
+<br>【節目名稱】：五十年後.2017-07-29
 <br>【節目頻道】：926
-<br>【節目日期】：2017-07-28
-<br>【節目主持】：鄭子誠
-<br>【節目時間】：21:00 - 22:00
-<br>【檔案名稱】：Music Lover.2017-07-28
+<br>【節目主持】：葉國華
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：50 Years After.2017-07-29
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213977673
-<br>【MediaFire】：http://adf.ly/1nc5dl
-<br>【MediaFire】：http://www.linkbucks.com/AyeSs
-<br>【百度網盤】：http://adf.ly/1nc5fE
-<br>【百度網盤】：http://www.linkbucks.com/AyeLq
-<br>【百度密碼】：tmxi
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：講東講西.2017-07-28
+<br>【節目名稱】：旅遊樂園.2017-07-29
 <br>【節目頻道】：926
-<br>【節目日期】：2017-07-28
-<br>【節目主持】：王兆俊 | 胡世傑
-<br>【節目嘉賓】：學人性聯盟成員梁偉怡
-<br>【節目話題】：香港的性小眾空間
-<br>【節目時間】：23:00 - 01:00
-<br>【檔案名稱】：Free As The Wind.2017-07-28
+<br>【節目主持】：張建浩 | 劉蓮 | 區凱聲 | Zeno
+<br>【節目時間】：16:00 - 18:00
+<br>【檔案名稱】：World Discovery.2017-07-29
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214002021
-<br>【MediaFire】：http://adf.ly/1ncWyX
-<br>【MediaFire】：http://www.linkbucks.com/Ayv7i
-<br>【百度網盤】：http://adf.ly/1ncWm9
-<br>【百度網盤】：http://www.linkbucks.com/Aywcu
-<br>【百度密碼】：dg6y
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：古今風雲人物.2017-07-29
+<br>【節目頻道】：926
+<br>【節目主持】：張偉國 | 麥勁生 | 曾卓然 | 羅永生
+<br>【節目時間】：20:00 - 20:30
+<br>【檔案名稱】：People.2017-07-29
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
