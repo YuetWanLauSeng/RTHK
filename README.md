@@ -37,12 +37,12 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：50 Years After.2017-07-29
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214045826
+<br>【MediaFire】：http://adf.ly/1ncqlh
+<br>【MediaFire】：http://www.linkbucks.com/AzP0i
+<br>【百度網盤】：http://adf.ly/1ncqds
+<br>【百度網盤】：http://www.linkbucks.com/AzQFj
+<br>【百度密碼】：kpn2
 
 <br>【節目名稱】：旅遊樂園.2017-07-29
 <br>【節目頻道】：926
@@ -50,12 +50,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：World Discovery.2017-07-29
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214047722
+<br>【MediaFire】：http://adf.ly/1ncqm9
+<br>【MediaFire】：http://www.linkbucks.com/AzPzi
+<br>【百度網盤】：http://adf.ly/1ncqdQ
+<br>【百度網盤】：http://www.linkbucks.com/AzQGP
+<br>【百度密碼】：2j87
 
 <br>【節目名稱】：古今風雲人物.2017-07-29
 <br>【節目頻道】：926
@@ -63,9 +63,9 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：People.2017-07-29
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214046230
+<br>【MediaFire】：http://adf.ly/1ncqmz
+<br>【MediaFire】：http://www.linkbucks.com/AzPyo
+<br>【百度網盤】：http://adf.ly/1ncqcU
+<br>【百度網盤】：http://www.linkbucks.com/AzQHQ
+<br>【百度密碼】：dfrn
