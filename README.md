@@ -39,12 +39,12 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：City Forum.2017-07-30
 <br>【節目版本】：非剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214116525
+<br>【MediaFire】：http://adf.ly/1ndaQc
+<br>【MediaFire】：http://www.linkbucks.com/Ay0qM
+<br>【百度網盤】：http://adf.ly/1ndaSo
+<br>【百度網盤】：http://www.linkbucks.com/Ay0pQ
+<br>【百度密碼】：tky1
 
 <br>【節目名稱】：大學堂.2017-07-30
 <br>【節目頻道】：926
@@ -52,12 +52,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：University Knowledge Platform.2017-07-30
 <br>【節目版本】：非剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214116529
+<br>【MediaFire】：http://adf.ly/1ndaPx
+<br>【MediaFire】：http://www.linkbucks.com/Ay0qX
+<br>【百度網盤】：http://adf.ly/1ndaRW
+<br>【百度網盤】：http://www.linkbucks.com/Ay0px
+<br>【百度密碼】：uvpt
 
 <br>【節目名稱】：2000靚歌再重聚.2017-07-30
 <br>【節目頻道】：948
