@@ -65,9 +65,9 @@
 <br>【節目時間】：21:00 - 24:00
 <br>【檔案名稱】：Reunion.2017-07-30
 <br>【節目版本】：非剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214138059
+<br>【MediaFire】：http://adf.ly/1ndu6b
+<br>【MediaFire】：http://www.linkbucks.com/AzAGc
+<br>【百度網盤】：http://adf.ly/1ndu3Y
+<br>【百度網盤】：http://www.linkbucks.com/AzAPZ
+<br>【百度密碼】：jhbd
