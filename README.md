@@ -52,12 +52,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-08-01
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214260327
+<br>【MediaFire】：http://adf.ly/1nevFC
+<br>【MediaFire】：http://www.linkbucks.com/Azy7G
+<br>【百度網盤】：http://adf.ly/1nevE6
+<br>【百度網盤】：http://www.linkbucks.com/AzzAA
+<br>【百度密碼】：uf6k
 
 <br>【節目名稱】：恬淡情懷.2017-08-01
 <br>【節目頻道】：926
@@ -66,12 +66,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-08-01
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214260421
+<br>【MediaFire】：http://adf.ly/1nevGj
+<br>【MediaFire】：http://www.linkbucks.com/Azy5g
+<br>【百度網盤】：http://adf.ly/1nevCv
+<br>【百度網盤】：http://www.linkbucks.com/AzzF8
+<br>【百度密碼】：ux5a
 
 <br>【節目名稱】：音樂情人.2017-08-01
 <br>【節目頻道】：926
