@@ -90,14 +90,15 @@
 <br>【節目名稱】：講東講西.2017-08-01
 <br>【節目頻道】：926
 <br>【節目日期】：2017-08-01
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：岑逸飛
+<br>【節目嘉賓】：鄭景鴻 | 張民炳
+<br>【節目話題】：論暑期活動
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-08-01
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214283423
+<br>【MediaFire】：http://adf.ly/1nfFMj
+<br>【MediaFire】：http://www.linkbucks.com/AzRhn
+<br>【百度網盤】：http://adf.ly/1nfFM6
+<br>【百度網盤】：http://www.linkbucks.com/AzRh7
+<br>【百度密碼】：6mer
