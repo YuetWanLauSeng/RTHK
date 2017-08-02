@@ -3,102 +3,101 @@
 
 <br>【更多節目請瀏覽】：https://github.com/YuetWanLauSeng/RTHK
 
-<br>【節目名稱】：開心日報.2017-08-01
+<br>【節目名稱】：開心日報.2017-08-02
 <br>【節目頻道】：926
-<br>【節目日期】：2017-08-01
+<br>【節目日期】：2017-08-02
 <br>【節目主持】：何守信 | 陳淑蘭 | 林超榮 | 丹尼爾 | 杜雯惠
 <br>【節目時間】：10:20 - 12:00
-<br>【檔案名稱】：Happy Daily.2017-08-01
+<br>【檔案名稱】：Happy Daily.2017-08-02
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214241533
-<br>【MediaFire】：http://adf.ly/1neelA
-<br>【MediaFire】：http://www.linkbucks.com/AzuGs
-<br>【百度網盤】：http://adf.ly/1neeiq
-<br>【百度網盤】：http://www.linkbucks.com/AzuI5
-<br>【百度密碼】：xqph
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214399492
+<br>【MediaFire】：http://adf.ly/1nffUx
+<br>【MediaFire】：http://www.linkbucks.com/Azei0
+<br>【百度網盤】：http://adf.ly/1nffax
+<br>【百度網盤】：http://www.linkbucks.com/AzehG
+<br>【百度密碼】：a8qy
 
-<br>【節目名稱】：瘋Show快活人.2017-08-01
+<br>【節目名稱】：瘋Show快活人.2017-08-02
 <br>【節目頻道】：948
-<br>【節目日期】：2017-08-01
+<br>【節目日期】：2017-08-02
 <br>【節目主持】：貴花田 | 曾志豪 | 王耀祖 | 斌仔 | 黃天頤 | 波盛
 <br>【節目時間】：10:00 - 13:00
-<br>【檔案名稱】：Crazy And Happy.2017-08-01
+<br>【檔案名稱】：Crazy And Happy.2017-08-02
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214241531
-<br>【MediaFire】：http://adf.ly/1neekT
-<br>【MediaFire】：http://www.linkbucks.com/AzuID
-<br>【百度網盤】：http://adf.ly/1neekA
-<br>【百度網盤】：http://www.linkbucks.com/AzuIV
-<br>【百度密碼】：tq9v
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214399469
+<br>【MediaFire】：http://adf.ly/1nffWj
+<br>【MediaFire】：http://www.linkbucks.com/Azeij
+<br>【百度網盤】：http://adf.ly/1nffbi
+<br>【百度網盤】：http://www.linkbucks.com/Azegm
+<br>【百度密碼】：udma
 
-<br>【節目名稱】：Made in Hong Kong 李志剛.2017-08-01
+<br>【節目名稱】：Made in Hong Kong 李志剛.2017-08-02
 <br>【節目頻道】：948
-<br>【節目日期】：2017-08-01
+<br>【節目日期】：2017-08-02
 <br>【節目主持】：李志剛 | 超B
 <br>【節目時間】：13:00 - 15:00
-<br>【檔案名稱】：Made In HK.2017-08-01
+<br>【檔案名稱】：Made In HK.2017-08-02
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214245823
-<br>【MediaFire】：http://adf.ly/1nehAu
-<br>【MediaFire】：http://www.linkbucks.com/Azqd9
-<br>【百度網盤】：http://adf.ly/1nehjl
-<br>【百度網盤】：http://www.linkbucks.com/AzqIk
-<br>【百度密碼】：znhp
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214399512
+<br>【MediaFire】：http://adf.ly/1nffXS
+<br>【MediaFire】：http://www.linkbucks.com/AzeiJ
+<br>【百度網盤】：http://adf.ly/1nffcM
+<br>【百度網盤】：http://www.linkbucks.com/Azef9
+<br>【百度密碼】：jftk
 
-<br>【節目名稱】：守下留情.2017-08-01
+<br>【節目名稱】：守下留情.2017-08-02
 <br>【節目頻道】：948
-<br>【節目日期】：2017-08-01
+<br>【節目日期】：2017-08-02
 <br>【節目主持】：劉偉恆 | 梁禮勤 | 阿一
 <br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：SeeSaw.2017-08-01
+<br>【檔案名稱】：SeeSaw.2017-08-02
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214260327
-<br>【MediaFire】：http://adf.ly/1nevFC
-<br>【MediaFire】：http://www.linkbucks.com/Azy7G
-<br>【百度網盤】：http://adf.ly/1nevE6
-<br>【百度網盤】：http://www.linkbucks.com/AzzAA
-<br>【百度密碼】：uf6k
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214399526
+<br>【MediaFire】：http://adf.ly/1nffYk
+<br>【MediaFire】：http://www.linkbucks.com/Azehz
+<br>【百度網盤】：http://adf.ly/1nffd8
+<br>【百度網盤】：http://www.linkbucks.com/Azefg
+<br>【百度密碼】：4b6j
 
-<br>【節目名稱】：恬淡情懷.2017-08-01
+<br>【節目名稱】：恬淡情懷.2017-08-02
 <br>【節目頻道】：926
-<br>【節目日期】：2017-08-01
+<br>【節目日期】：2017-08-02
 <br>【節目主持】：鄧慧詩
 <br>【節目時間】：20:00 - 21:00
-<br>【檔案名稱】：Subtle Sensuality.2017-08-01
+<br>【檔案名稱】：Subtle Sensuality.2017-08-02
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214260421
-<br>【MediaFire】：http://adf.ly/1nevGj
-<br>【MediaFire】：http://www.linkbucks.com/Azy5g
-<br>【百度網盤】：http://adf.ly/1nevCv
-<br>【百度網盤】：http://www.linkbucks.com/AzzF8
-<br>【百度密碼】：ux5a
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214399534
+<br>【MediaFire】：http://adf.ly/1nffZw
+<br>【MediaFire】：http://www.linkbucks.com/Azehl
+<br>【百度網盤】：http://adf.ly/1nffdv
+<br><br>【百度網盤】：http://www.linkbucks.com/AzefM
+<br>【百度密碼】：263t
 
-<br>【節目名稱】：音樂情人.2017-08-01
+<br>【節目名稱】：音樂情人.2017-08-02
 <br>【節目頻道】：926
-<br>【節目日期】：2017-08-01
+<br>【節目日期】：2017-08-02
 <br>【節目主持】：鄭子誠
 <br>【節目時間】：21:00 - 22:00
-<br>【檔案名稱】：Music Lover.2017-08-01
+<br>【檔案名稱】：Music Lover.2017-08-02
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214268480
-<br>【MediaFire】：http://adf.ly/1neyO4
-<br>【MediaFire】：http://www.linkbucks.com/Azb3y
-<br>【百度網盤】：http://adf.ly/1neyG7
-<br>【百度網盤】：http://www.linkbucks.com/AzcJb
-<br>【百度密碼】：gixj
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：講東講西.2017-08-01
+<br>【節目名稱】：講東講西.2017-08-02
 <br>【節目頻道】：926
-<br>【節目日期】：2017-08-01
-<br>【節目主持】：岑逸飛
-<br>【節目嘉賓】：鄭景鴻 | 張民炳
-<br>【節目話題】：論暑期活動
+<br>【節目日期】：2017-08-02
+<br>【節目主持】：文潔華 | 馬恩賜 | 王建元
+<br>【節目話題】：共同與差異
 <br>【節目時間】：23:00 - 01:00
-<br>【檔案名稱】：Free As The Wind.2017-08-01
+<br>【檔案名稱】：Free As The Wind.2017-08-02
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214283423
-<br>【MediaFire】：http://adf.ly/1nfFMj
-<br>【MediaFire】：http://www.linkbucks.com/AzRhn
-<br>【百度網盤】：http://adf.ly/1nfFM6
-<br>【百度網盤】：http://www.linkbucks.com/AzRh7
-<br>【百度密碼】：6mer
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
