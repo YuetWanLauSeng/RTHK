@@ -70,7 +70,7 @@
 <br>【MediaFire】：http://adf.ly/1nffZw
 <br>【MediaFire】：http://www.linkbucks.com/Azehl
 <br>【百度網盤】：http://adf.ly/1nffdv
-<br><br>【百度網盤】：http://www.linkbucks.com/AzefM
+<br>【百度網盤】：http://www.linkbucks.com/AzefM
 <br>【百度密碼】：263t
 
 <br>【節目名稱】：音樂情人.2017-08-02
@@ -80,9 +80,9 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-08-02
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214405194
+<br>【MediaFire】：http://adf.ly/1ng28t
+<br>【MediaFire】：http://www.linkbucks.com/AzjFE
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -95,9 +95,9 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-08-02
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214441304
+<br>【MediaFire】：http://adf.ly/1ng28W
+<br>【MediaFire】：http://www.linkbucks.com/AzjB0
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
