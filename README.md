@@ -83,9 +83,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214405194
 <br>【MediaFire】：http://adf.ly/1ng28t
 <br>【MediaFire】：http://www.linkbucks.com/AzjFE
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ng737
+<br>【百度網盤】：http://www.linkbucks.com/AzqcT
+<br>【百度密碼】：ub94
 
 <br>【節目名稱】：講東講西.2017-08-02
 <br>【節目頻道】：926
@@ -98,6 +98,6 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214441304
 <br>【MediaFire】：http://adf.ly/1ng28W
 <br>【MediaFire】：http://www.linkbucks.com/AzjB0
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ng73n
+<br>【百度網盤】：http://www.linkbucks.com/Azqcv
+<br>【百度密碼】：2ch3
