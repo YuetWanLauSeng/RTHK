@@ -13,9 +13,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214623228
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nhu06
+<br>【百度網盤】：http://www.linkbucks.com/A0Nq0
+<br>【百度密碼】：picu
 
 <br>【節目名稱】：瘋Show快活人.2017-08-04
 <br>【節目頻道】：948
@@ -27,9 +27,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214623006
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nhu4J
+<br>【百度網盤】：http://www.linkbucks.com/A0NjD
+<br>【百度密碼】：zwya
 
 <br>【節目名稱】：Made in Hong Kong 李志剛.2017-08-04
 <br>【節目頻道】：948
@@ -41,9 +41,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214623288
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nhtzg
+<br>【百度網盤】：http://www.linkbucks.com/A0OR2
+<br>【百度密碼】：tamv
 
 <br>【節目名稱】：守下留情.2017-08-04
 <br>【節目頻道】：948
@@ -55,9 +55,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214623397
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nhtkQ
+<br>【百度網盤】：http://www.linkbucks.com/A0OAg
+<br>【百度密碼】：yevr
 
 <br>【節目名稱】：恬淡情懷.2017-08-04
 <br>【節目頻道】：926
@@ -69,9 +69,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214623454
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nhtj4
+<br>【百度網盤】：http://www.linkbucks.com/A0OAu
+<br>【百度密碼】：csin
 
 <br>【節目名稱】：音樂情人.2017-08-04
 <br>【節目頻道】：926
@@ -83,9 +83,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214623314
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nhtkx
+<br>【百度網盤】：http://www.linkbucks.com/A0N9q
+<br>【百度密碼】：eku2
 
 <br>【節目名稱】：講東講西.2017-08-04
 <br>【節目頻道】：926
@@ -99,6 +99,6 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214623134
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nhu3m
+<br>【百度網盤】：http://www.linkbucks.com/A0N2r
+<br>【百度密碼】：4h28
