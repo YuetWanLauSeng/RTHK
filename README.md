@@ -37,9 +37,9 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：University Knowledge Platform.2017-08-06
 <br>【節目版本】：非剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214699110
+<br>【MediaFire】：http://adf.ly/1njIB5
+<br>【MediaFire】：http://www.linkbucks.com/A0jAp
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
