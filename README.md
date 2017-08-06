@@ -103,9 +103,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214648042
 <br>【MediaFire】：http://adf.ly/1niovS
 <br>【MediaFire】：http://www.linkbucks.com/A0Bys
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1niwtr
+<br>【百度網盤】：http://www.linkbucks.com/Az9hD
+<br>【百度密碼】：v2hv
 
 <br>【節目名稱】：電影兩面睇.2017-08-05
 <br>【節目頻道】：926
@@ -116,9 +116,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214657905
 <br>【MediaFire】：http://adf.ly/1nioqb
 <br>【MediaFire】：http://www.linkbucks.com/A0Kqe
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1niws0
+<br>【百度網盤】：http://www.linkbucks.com/Az9hQ
+<br>【百度密碼】：cttt
 
 <br>【節目名稱】：有種回憶.2017-08-05
 <br>【節目頻道】：926
@@ -129,6 +129,6 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214656437
 <br>【MediaFire】：http://adf.ly/1nioq1
 <br>【MediaFire】：http://www.linkbucks.com/A0Kqm
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1niwqi
+<br>【百度網盤】：http://www.linkbucks.com/Az9hZ
+<br>【百度密碼】：2ryu
