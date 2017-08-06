@@ -101,8 +101,8 @@
 <br>【檔案名稱】：Searching For The Muses.2017-08-05
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214648042
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1niovS
+<br>【MediaFire】：http://www.linkbucks.com/A0Bys
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -114,8 +114,8 @@
 <br>【檔案名稱】：Movie World.2017-08-05
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214657905
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nioqb
+<br>【MediaFire】：http://www.linkbucks.com/A0Kqe
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -127,8 +127,8 @@
 <br>【檔案名稱】：All About Memories.2017-08-05
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214656437
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nioq1
+<br>【MediaFire】：http://www.linkbucks.com/A0Kqm
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
