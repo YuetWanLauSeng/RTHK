@@ -13,9 +13,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214693497
 <br>【MediaFire】：http://adf.ly/1njDum
 <br>【MediaFire】：http://www.linkbucks.com/A0kRg
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1njyHe
+<br>【百度網盤】：http://www.linkbucks.com/A0H4m
+<br>【百度密碼】：686y
 
 <br>【節目名稱】：講東講西.2017-08-06
 <br>【節目頻道】：948
@@ -27,9 +27,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214692801
 <br>【MediaFire】：http://adf.ly/1njDvV
 <br>【MediaFire】：http://www.linkbucks.com/A0kRL
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1njyIN
+<br>【百度網盤】：http://www.linkbucks.com/A0H4A
+<br>【百度密碼】：xgj7
 
 <br>【節目名稱】：大學堂.2017-08-06
 <br>【節目頻道】：926
@@ -40,9 +40,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214699110
 <br>【MediaFire】：http://adf.ly/1njIB5
 <br>【MediaFire】：http://www.linkbucks.com/A0jAp
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1njyJv
+<br>【百度網盤】：http://www.linkbucks.com/A0H2Q
+<br>【百度密碼】：37sx
 
 <br>【節目名稱】：2000靚歌再重聚.2017-08-06
 <br>【節目頻道】：948
@@ -53,6 +53,6 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214721729
 <br>【MediaFire】：http://adf.ly/1njeWl
 <br>【MediaFire】：http://www.linkbucks.com/A0Evd
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1njyKw
+<br>【百度網盤】：http://www.linkbucks.com/A0H1r
+<br>【百度密碼】：8njm
