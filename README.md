@@ -11,8 +11,8 @@
 <br>【檔案名稱】：Happy Daily.2017-08-08
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214862619
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkeWR
+<br>【MediaFire】：http://www.linkbucks.com/A0uaH
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -25,8 +25,8 @@
 <br>【檔案名稱】：Crazy And Happy.2017-08-08
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214862348
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkeGI
+<br>【MediaFire】：http://www.linkbucks.com/A0u4X
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -39,8 +39,8 @@
 <br>【檔案名稱】：Made In HK.2017-08-08
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214862730
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkeX3
+<br>【MediaFire】：http://www.linkbucks.com/A0uYq
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -53,8 +53,8 @@
 <br>【檔案名稱】：SeeSaw.2017-08-08
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214862886
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkeHM
+<br>【MediaFire】：http://www.linkbucks.com/A0u2p
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
