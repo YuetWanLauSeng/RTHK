@@ -68,8 +68,8 @@
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：
 <br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
+<br>【MediaFire】：http://adf.ly/1nkjfT
+<br>【百度網盤】：http://www.linkbucks.com/Ayu1u
 <br>【百度網盤】：
 <br>【百度密碼】：
 
@@ -81,8 +81,8 @@
 <br>【檔案名稱】：Subtle Sensuality.2017-08-08
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkjgg
+<br>【MediaFire】：http://www.linkbucks.com/AyuST
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -95,8 +95,8 @@
 <br>【檔案名稱】：Music Lover.2017-08-08
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkjg9
+<br>【MediaFire】：http://www.linkbucks.com/Ayuam
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -104,8 +104,9 @@
 <br>【節目名稱】：講東講西.2017-08-08
 <br>【節目頻道】：926
 <br>【節目日期】：2017-08-08
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：岑逸飛
+<br>【節目嘉賓】：黃兆良 | 楊汶靜
+<br>【節目話題】：催眠治療的前世今生
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-08-08
 <br>【節目版本】：未剪輯版
