@@ -39,8 +39,8 @@
 <br>【檔案名稱】：Made In HK.2017-08-09
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214959952
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nlOev
+<br>【MediaFire】：http://www.linkbucks.com/A1FUn
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -67,8 +67,8 @@
 <br>【檔案名稱】：Gimme 5.2017-08-09
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214959126
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nlOfL
+<br>【MediaFire】：http://www.linkbucks.com/A1FUX
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
