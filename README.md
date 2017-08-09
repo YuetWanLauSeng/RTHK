@@ -66,10 +66,10 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-08-08
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214877735
 <br>【MediaFire】：http://adf.ly/1nkjfT
-<br>【百度網盤】：http://www.linkbucks.com/Ayu1u
+<br>【MediaFire】：http://www.linkbucks.com/Ayu1u
+<br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
 
@@ -80,7 +80,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-08-08
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214880084
 <br>【MediaFire】：http://adf.ly/1nkjgg
 <br>【MediaFire】：http://www.linkbucks.com/AyuST
 <br>【百度網盤】：
@@ -94,7 +94,7 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-08-08
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214878629
 <br>【MediaFire】：http://adf.ly/1nkjg9
 <br>【MediaFire】：http://www.linkbucks.com/Ayuam
 <br>【百度網盤】：
@@ -110,7 +110,7 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-08-08
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214877494
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
