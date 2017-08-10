@@ -13,9 +13,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214959360
 <br>【MediaFire】：http://adf.ly/1nldTa
 <br>【MediaFire】：http://www.linkbucks.com/A1Ilc
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nldqa
+<br>【百度網盤】：http://www.linkbucks.com/A1Ifa
+<br>【百度密碼】：m3au
 
 <br>【節目名稱】：瘋Show快活人.2017-08-09
 <br>【節目頻道】：948
@@ -27,9 +27,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214958234
 <br>【MediaFire】：http://adf.ly/1nldTp
 <br>【MediaFire】：http://www.linkbucks.com/A1IlX
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nldrF
+<br>【百度網盤】：http://www.linkbucks.com/A1IfJ
+<br>【百度密碼】：pav7
 
 <br>【節目名稱】：Made in Hong Kong 李志剛.2017-08-09
 <br>【節目頻道】：948
@@ -41,9 +41,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214959952
 <br>【MediaFire】：http://adf.ly/1nlOev
 <br>【MediaFire】：http://www.linkbucks.com/A1FUn
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nldsY
+<br>【百度網盤】：http://www.linkbucks.com/A1Iev
+<br>【百度密碼】：dq57
 
 <br>【節目名稱】：守下留情.2017-08-09
 <br>【節目頻道】：948
@@ -55,9 +55,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214960997
 <br>【MediaFire】：http://adf.ly/1nldUJ
 <br>【MediaFire】：http://www.linkbucks.com/A1IlU
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nldss
+<br>【百度網盤】：http://www.linkbucks.com/A1Ier
+<br>【百度密碼】：894i
 
 <br>【節目名稱】：Gimme 5.2017-08-09
 <br>【節目頻道】：948
@@ -69,9 +69,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214959126
 <br>【MediaFire】：http://adf.ly/1nlOfL
 <br>【MediaFire】：http://www.linkbucks.com/A1FUX
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nldtM
+<br>【百度網盤】：http://www.linkbucks.com/A1Id9
+<br>【百度密碼】：7p6g
 
 <br>【節目名稱】：恬淡情懷.2017-08-09
 <br>【節目頻道】：926
@@ -83,9 +83,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214964357
 <br>【MediaFire】：http://adf.ly/1nldUm
 <br>【MediaFire】：http://www.linkbucks.com/A1IlJ
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nldtj
+<br>【百度網盤】：http://www.linkbucks.com/A1Id7
+<br>【百度密碼】：azp2
 
 <br>【節目名稱】：音樂情人.2017-08-09
 <br>【節目頻道】：926
@@ -97,9 +97,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214963376
 <br>【MediaFire】：http://adf.ly/1nldVB
 <br>【MediaFire】：http://www.linkbucks.com/A1IlD
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nlf5t
+<br>【百度網盤】：http://www.linkbucks.com/A1IHf
+<br>【百度密碼】：3usj
 
 <br>【節目名稱】：講東講西.2017-08-09
 <br>【節目頻道】：926
@@ -112,6 +112,6 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214976520
 <br>【MediaFire】：http://adf.ly/1nldLn
 <br>【MediaFire】：http://www.linkbucks.com/A1Iny
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nlfBT
+<br>【百度網盤】：http://www.linkbucks.com/A1IFH
+<br>【百度密碼】：u4ns
