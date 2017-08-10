@@ -11,8 +11,8 @@
 <br>【檔案名稱】：Happy Daily.2017-08-09
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214959360
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nldTa
+<br>【MediaFire】：http://www.linkbucks.com/A1Ilc
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -25,8 +25,8 @@
 <br>【檔案名稱】：Crazy And Happy.2017-08-09
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214958234
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nldTp
+<br>【MediaFire】：http://www.linkbucks.com/A1IlX
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -53,8 +53,8 @@
 <br>【檔案名稱】：SeeSaw.2017-08-09
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214960997
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nldUJ
+<br>【MediaFire】：http://www.linkbucks.com/A1IlU
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -81,8 +81,8 @@
 <br>【檔案名稱】：Subtle Sensuality.2017-08-09
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214964357
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nldUm
+<br>【MediaFire】：http://www.linkbucks.com/A1IlJ
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -95,8 +95,8 @@
 <br>【檔案名稱】：Music Lover.2017-08-09
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214963376
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nldVB
+<br>【MediaFire】：http://www.linkbucks.com/A1IlD
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -104,14 +104,14 @@
 <br>【節目名稱】：講東講西.2017-08-09
 <br>【節目頻道】：926
 <br>【節目日期】：2017-08-09
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：文潔華 | 盧傑雄 | 陶國璋
+<br>【節目話題】：毀譽現象
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-08-09
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214976520
+<br>【MediaFire】：http://adf.ly/1nldLn
+<br>【MediaFire】：http://www.linkbucks.com/A1Iny
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
