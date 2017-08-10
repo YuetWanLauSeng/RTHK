@@ -11,8 +11,8 @@
 <br>【檔案名稱】：Happy Daily.2017-08-10
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215044339
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nm3h3
+<br>【MediaFire】：http://www.linkbucks.com/A1O94
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -39,8 +39,8 @@
 <br>【檔案名稱】：Made In HK.2017-08-10
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215044495
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nm3gX
+<br>【MediaFire】：http://www.linkbucks.com/A1PAD
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -53,8 +53,8 @@
 <br>【檔案名稱】：SeeSaw.2017-08-10
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215044632
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nm3fd
+<br>【MediaFire】：http://www.linkbucks.com/A1PAN
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -67,8 +67,8 @@
 <br>【檔案名稱】：Gimme 5.2017-08-10
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215044264
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nm3eu
+<br>【MediaFire】：http://www.linkbucks.com/A1PAg
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -81,8 +81,8 @@
 <br>【檔案名稱】：Subtle Sensuality.2017-08-10
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215049530
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nm3iG
+<br>【MediaFire】：http://www.linkbucks.com/A1O9y
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -95,8 +95,8 @@
 <br>【檔案名稱】：Music Lover.2017-08-10
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215049273
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nm3hl
+<br>【MediaFire】：http://www.linkbucks.com/A1O92
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
