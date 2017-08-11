@@ -80,12 +80,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-08-11
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215117577
+<br>【MediaFire】：http://adf.ly/1nmkgP
+<br>【MediaFire】：http://www.linkbucks.com/A08JJ
+<br>【百度網盤】：http://adf.ly/1nmkjO
+<br>【百度網盤】：http://www.linkbucks.com/A08H3
+<br>【百度密碼】：ndsd
 
 <br>【節目名稱】：音樂情人.2017-08-11
 <br>【節目頻道】：926
@@ -94,9 +94,9 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-08-11
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215117566
+<br>【MediaFire】：http://adf.ly/1nmkhF
+<br>【MediaFire】：http://www.linkbucks.com/A08I6
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
