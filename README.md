@@ -24,12 +24,12 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Free As The Wind.2017-08-13
 <br>【節目版本】：非剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215298271
+<br>【MediaFire】：http://adf.ly/1noDIh
+<br>【MediaFire】：http://www.linkbucks.com/A12K0
+<br>【百度網盤】：http://adf.ly/1noDIP
+<br>【百度網盤】：http://www.linkbucks.com/A12LB
+<br>【百度密碼】：t4jh
 
 <br>【節目名稱】：大學堂.2017-08-13
 <br>【節目頻道】：926
