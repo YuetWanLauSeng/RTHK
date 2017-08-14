@@ -3,56 +3,115 @@
 
 <br>【更多節目請瀏覽】：https://github.com/YuetWanLauSeng/RTHK
 
-<br>【節目名稱】：舊日的足跡.2017-08-13
+<br>【節目名稱】：開心日報.2017-08-14
 <br>【節目頻道】：926
-<br>【節目主持】：車淑梅
-<br>【節目嘉賓】：劉美君
-<br>【節目時間】：08:00 - 10:00
-<br>【檔案名稱】：HK Footpath.2017-08-13
-<br>【節目版本】：非剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215296115
-<br>【MediaFire】：http://adf.ly/1noCN4
-<br>【MediaFire】：http://www.linkbucks.com/A1yqy
-<br>【百度網盤】：http://adf.ly/1noCNS
-<br>【百度網盤】：http://www.linkbucks.com/A1yqY
-<br>【百度密碼】：f4nr
+<br>【節目日期】：2017-08-14
+<br>【節目主持】：何守信 | 陳淑蘭 | 林超榮 | 丹尼爾 | 杜雯惠
+<br>【節目時間】：10:20 - 12:00
+<br>【檔案名稱】：Happy Daily.2017-08-14
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215495310
+<br>【MediaFire】：http://adf.ly/1np1Lx
+<br>【MediaFire】：http://www.linkbucks.com/A18gp
+<br>【百度網盤】：http://adf.ly/1np1KG
+<br>【百度網盤】：http://www.linkbucks.com/A18hL
+<br>【百度密碼】：4j6w
 
-<br>【節目名稱】：講東講西.2017-08-13
+<br>【節目名稱】：瘋Show快活人.2017-08-14
 <br>【節目頻道】：948
-<br>【節目主持】：馬恩賜 | 文潔華 | 岑逸飛
-<br>【節目話題】：社會倫理
-<br>【節目時間】：10:00 - 12:00
-<br>【檔案名稱】：Free As The Wind.2017-08-13
-<br>【節目版本】：非剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215298271
-<br>【MediaFire】：http://adf.ly/1noDIh
-<br>【MediaFire】：http://www.linkbucks.com/A12K0
-<br>【百度網盤】：http://adf.ly/1noDIP
-<br>【百度網盤】：http://www.linkbucks.com/A12LB
-<br>【百度密碼】：t4jh
+<br>【節目日期】：2017-08-14
+<br>【節目主持】：貴花田 | 曾志豪 | 王耀祖 | 斌仔 | 黃天頤 | 波盛
+<br>【節目時間】：10:00 - 13:00
+<br>【檔案名稱】：Crazy And Happy.2017-08-14
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215495249
+<br>【MediaFire】：http://adf.ly/1np1Qf
+<br>【MediaFire】：http://www.linkbucks.com/A18WH
+<br>【百度網盤】：http://adf.ly/1np1Kn
+<br>【百度網盤】：http://www.linkbucks.com/A18g0
+<br>【百度密碼】：bbwn
 
-<br>【節目名稱】：大學堂.2017-08-13
+<br>【節目名稱】：Made in Hong Kong 李志剛.2017-08-14
+<br>【節目頻道】：948
+<br>【節目日期】：2017-08-14
+<br>【節目主持】：李志剛 | 超B
+<br>【節目時間】：13:00 - 15:00
+<br>【檔案名稱】：Made In HK.2017-08-14
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215495361
+<br>【MediaFire】：http://adf.ly/1np1M8
+<br>【MediaFire】：http://www.linkbucks.com/A18gk
+<br>【百度網盤】：http://adf.ly/1np1LE
+<br>【百度網盤】：http://www.linkbucks.com/A18gt
+<br>【百度密碼】：wbke
+
+<br>【節目名稱】：守下留情.2017-08-14
+<br>【節目頻道】：948
+<br>【節目日期】：2017-08-14
+<br>【節目主持】：劉偉恆 | 梁禮勤 | 阿一
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：SeeSaw.2017-08-14
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：Gimme 5.2017-08-14
+<br>【節目頻道】：948
+<br>【節目日期】：2017-08-14
+<br>【節目主持】：梁德輝 | 黃天頤 | 波盛
+<br>【節目時間】：17:00 - 19:00
+<br>【檔案名稱】：Gimme 5.2017-08-14
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：恬淡情懷.2017-08-14
 <br>【節目頻道】：926
-<br>【節目主持】：趙善恩
-<br>【節目時間】：20:00 - 20:30
-<br>【檔案名稱】：University Knowledge Platform.2017-08-13
-<br>【節目版本】：非剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215349852
-<br>【MediaFire】：http://adf.ly/1noSXX
-<br>【MediaFire】：http://www.linkbucks.com/A15it
-<br>【百度網盤】：http://adf.ly/1noSY0
-<br>【百度網盤】：http://www.linkbucks.com/A15hk
-<br>【百度密碼】：feht
+<br>【節目日期】：2017-08-14
+<br>【節目主持】：鄧慧詩
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Subtle Sensuality.2017-08-14
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：2000靚歌再重聚.2017-08-13
-<br>【節目頻道】：948
-<br>【節目主持】：區瑞強
-<br>【節目時間】：21:00 - 24:00
-<br>【檔案名稱】：Reunion.2017-08-13
-<br>【節目版本】：非剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215398610
-<br>【MediaFire】：http://adf.ly/1noo5l
-<br>【MediaFire】：http://www.linkbucks.com/A1uIJ
-<br>【百度網盤】：http://adf.ly/1noo5E
-<br>【百度網盤】：http://www.linkbucks.com/A1uIh
-<br>【百度密碼】：9qq2
+<br>【節目名稱】：音樂情人.2017-08-14
+<br>【節目頻道】：926
+<br>【節目日期】：2017-08-14
+<br>【節目主持】：鄭子誠
+<br>【節目時間】：21:00 - 22:00
+<br>【檔案名稱】：Music Lover.2017-08-14
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：講東講西.2017-08-14
+<br>【節目頻道】：926
+<br>【節目日期】：2017-08-14
+<br>【節目主持】：
+<br>【節目話題】：
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：Free As The Wind.2017-08-14
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
