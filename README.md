@@ -52,12 +52,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-08-14
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215538753
+<br>【MediaFire】：http://adf.ly/1np6je
+<br>【MediaFire】：http://www.linkbucks.com/A0U5t
+<br>【百度網盤】：http://adf.ly/1np6kP
+<br>【百度網盤】：http://www.linkbucks.com/A0U5c
+<br>【百度密碼】：keqf
 
 <br>【節目名稱】：Gimme 5.2017-08-14
 <br>【節目頻道】：948
@@ -66,12 +66,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-08-14
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215538733
+<br>【MediaFire】：http://adf.ly/1np6kx
+<br>【MediaFire】：http://www.linkbucks.com/A0U4s
+<br>【百度網盤】：http://adf.ly/1np6lm
+<br>【百度網盤】：http://www.linkbucks.com/A0U1k
+<br>【百度密碼】：w59d
 
 <br>【節目名稱】：恬淡情懷.2017-08-14
 <br>【節目頻道】：926
@@ -104,8 +104,9 @@
 <br>【節目名稱】：講東講西.2017-08-14
 <br>【節目頻道】：926
 <br>【節目日期】：2017-08-14
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：馬鼎盛 | 馬恩賜
+<br>【節目嘉賓】：劉瀾昌
+<br>【節目話題】：鄧小平恢復高考始末
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-08-14
 <br>【節目版本】：未剪輯版
