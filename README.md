@@ -41,9 +41,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215911260
 <br>【MediaFire】：http://adf.ly/1nr86f
 <br>【MediaFire】：http://www.linkbucks.com/A128i
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nr8RH
+<br>【百度網盤】：http://www.linkbucks.com/A121U
+<br>【百度密碼】：fyti
 
 <br>【節目名稱】：守下留情.2017-08-17
 <br>【節目頻道】：948
