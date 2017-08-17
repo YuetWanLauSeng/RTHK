@@ -52,12 +52,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-08-17
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215936204
+<br>【MediaFire】：http://adf.ly/1nrG3F
+<br>【MediaFire】：http://www.linkbucks.com/A17BG
+<br>【百度網盤】：http://adf.ly/1nrG6Q
+<br>【百度網盤】：http://www.linkbucks.com/A17Am
+<br>【百度密碼】：e9sc
 
 <br>【節目名稱】：Gimme 5.2017-08-17
 <br>【節目頻道】：948
@@ -66,12 +66,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-08-17
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215936087
+<br>【MediaFire】：http://adf.ly/1nrG49
+<br>【MediaFire】：http://www.linkbucks.com/A17A4
+<br>【百度網盤】：http://adf.ly/1nrG7q
+<br>【百度網盤】：http://www.linkbucks.com/A17Aa
+<br>【百度密碼】：6w4e
 
 <br>【節目名稱】：恬淡情懷.2017-08-17
 <br>【節目頻道】：926
