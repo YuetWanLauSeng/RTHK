@@ -104,14 +104,15 @@
 <br>【節目名稱】：講東講西.2017-08-17
 <br>【節目頻道】：926
 <br>【節目日期】：2017-08-17
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：鄧達智 | 馬恩賜 | 李健雄
+<br>【節目嘉賓】：黃宗顯醫生
+<br>【節目話題】：都市的精神病
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-08-17
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215955485
+<br>【MediaFire】：http://adf.ly/1nrliR
+<br>【MediaFire】：http://www.linkbucks.com/A2JRY
+<br>【百度網盤】：http://adf.ly/1nrli3
+<br>【百度網盤】：http://www.linkbucks.com/A2JRh
+<br>【百度密碼】：2tcs
