@@ -87,12 +87,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：People.2017-08-19
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216260096
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nt8fA
+<br>【百度網盤】：http://www.linkbucks.com/A2GFc
+<br>【百度密碼】：9hqy
 
 <br>【節目名稱】：尋找繆思.2017-08-19
 <br>【節目頻道】：948
@@ -100,12 +100,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：Searching For The Muses.2017-08-19
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216260130
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nt8e2
+<br>【百度網盤】：http://www.linkbucks.com/A2GFs
+<br>【百度密碼】：i2hp
 
 <br>【節目名稱】：電影兩面睇.2017-08-19
 <br>【節目頻道】：926
