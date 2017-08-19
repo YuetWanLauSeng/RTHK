@@ -48,12 +48,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：World Discovery.2017-08-19
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216248953
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nt6JX
+<br>【百度網盤】：http://www.linkbucks.com/A2Gho
+<br>【百度密碼】：rm2g
 
 <br>【節目名稱】：波樂無窮.2017-08-19
 <br>【節目頻道】：926
@@ -61,12 +61,12 @@
 <br>【節目時間】：18:20 - 19:00
 <br>【檔案名稱】：BallRocks.2017-08-19
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216248936
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nt6N3
+<br>【百度網盤】：http://www.linkbucks.com/A2GhZ
+<br>【百度密碼】：8ejy
 
 <br>【節目名稱】：十項全能.2017-08-19
 <br>【節目頻道】：926
@@ -74,12 +74,12 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Decathlon.2017-08-19
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216248947
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nt6M0
+<br>【百度網盤】：http://www.linkbucks.com/A2Ghc
+<br>【百度密碼】：9jk4
 
 <br>【節目名稱】：古今風雲人物.2017-08-19
 <br>【節目頻道】：926
