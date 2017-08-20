@@ -37,12 +37,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：University Knowledge Platform.2017-08-20
 <br>【節目版本】：非剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216389560
+<br>【MediaFire】：http://adf.ly/1nu00w
+<br>【MediaFire】：http://www.linkbucks.com/A2MOw
+<br>【百度網盤】：http://adf.ly/1nu01x
+<br>【百度網盤】：http://www.linkbucks.com/A2MMK
+<br>【百度密碼】：jv28
 
 <br>【節目名稱】：2000靚歌再重聚.2017-08-20
 <br>【節目頻道】：948
