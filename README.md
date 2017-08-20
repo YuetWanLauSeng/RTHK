@@ -49,8 +49,8 @@
 <br>【檔案名稱】：World Discovery.2017-08-19
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216248953
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ntaWx
+<br>【MediaFire】：http://www.linkbucks.com/A2Js7
 <br>【百度網盤】：http://adf.ly/1nt6JX
 <br>【百度網盤】：http://www.linkbucks.com/A2Gho
 <br>【百度密碼】：rm2g
@@ -62,8 +62,8 @@
 <br>【檔案名稱】：BallRocks.2017-08-19
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216248936
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ntaXd
+<br>【MediaFire】：http://www.linkbucks.com/A2Jsq
 <br>【百度網盤】：http://adf.ly/1nt6N3
 <br>【百度網盤】：http://www.linkbucks.com/A2GhZ
 <br>【百度密碼】：8ejy
@@ -75,8 +75,8 @@
 <br>【檔案名稱】：Decathlon.2017-08-19
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216248947
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ntaWS
+<br>【MediaFire】：http://www.linkbucks.com/A2JtB
 <br>【百度網盤】：http://adf.ly/1nt6M0
 <br>【百度網盤】：http://www.linkbucks.com/A2Ghc
 <br>【百度密碼】：9jk4
@@ -88,8 +88,8 @@
 <br>【檔案名稱】：People.2017-08-19
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216260096
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ntaXz
+<br>【MediaFire】：http://www.linkbucks.com/A2Jsl
 <br>【百度網盤】：http://adf.ly/1nt8fA
 <br>【百度網盤】：http://www.linkbucks.com/A2GFc
 <br>【百度密碼】：9hqy
@@ -101,8 +101,8 @@
 <br>【檔案名稱】：Searching For The Muses.2017-08-19
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216260130
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ntaXG
+<br>【MediaFire】：http://www.linkbucks.com/A2Jsy
 <br>【百度網盤】：http://adf.ly/1nt8e2
 <br>【百度網盤】：http://www.linkbucks.com/A2GFs
 <br>【百度密碼】：i2hp
@@ -113,12 +113,12 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Movie World.2017-08-19
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216329230
+<br>【MediaFire】：http://adf.ly/1ntaNv
+<br>【MediaFire】：http://www.linkbucks.com/A2JxW
+<br>【百度網盤】：http://adf.ly/1ntaMa
+<br>【百度網盤】：http://www.linkbucks.com/A2Jxr
+<br>【百度密碼】：9694
 
 <br>【節目名稱】：有種回憶.2017-08-19
 <br>【節目頻道】：926
@@ -126,9 +126,9 @@
 <br>【節目時間】：22:20 - 24:00
 <br>【檔案名稱】：All About Memories.2017-08-19
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216329202
+<br>【MediaFire】：http://adf.ly/1ntaVp
+<br>【MediaFire】：http://www.linkbucks.com/A2JtD
+<br>【百度網盤】：http://adf.ly/1ntaNi
+<br>【百度網盤】：http://www.linkbucks.com/A2Jxc
+<br>【百度密碼】：y4nu
