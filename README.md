@@ -66,12 +66,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-08-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216552641
+<br>【MediaFire】：http://adf.ly/1nuvAe
+<br>【MediaFire】：http://www.linkbucks.com/AiF6P
+<br>【百度網盤】：http://adf.ly/1nuvG4
+<br>【百度網盤】：http://www.linkbucks.com/Ag5zR
+<br>【百度密碼】：7day
 
 <br>【節目名稱】：恬淡情懷.2017-08-21
 <br>【節目頻道】：926
@@ -80,12 +80,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-08-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216552687
+<br>【MediaFire】：http://adf.ly/1nuvC4
+<br>【MediaFire】：http://www.linkbucks.com/AhqIs
+<br>【百度網盤】：http://adf.ly/1nuvDr
+<br>【百度網盤】：http://www.linkbucks.com/AheY4
+<br>【百度密碼】：pf99
 
 <br>【節目名稱】：音樂情人.2017-08-21
 <br>【節目頻道】：926
@@ -94,12 +94,12 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-08-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216552666
+<br>【MediaFire】：http://adf.ly/1nuvBK
+<br>【MediaFire】：http://www.linkbucks.com/Ahrqg
+<br>【百度網盤】：http://adf.ly/1nuvF4
+<br>【百度網盤】：http://www.linkbucks.com/AhRfJ
+<br>【百度密碼】：6q2y
 
 <br>【節目名稱】：講東講西.2017-08-21
 <br>【節目頻道】：926
