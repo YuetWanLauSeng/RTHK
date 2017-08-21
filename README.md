@@ -38,12 +38,12 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Made In HK.2017-08-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216538560
+<br>【MediaFire】：http://adf.ly/1nukk0
+<br>【MediaFire】：http://www.linkbucks.com/A2alk
+<br>【百度網盤】：http://adf.ly/1nukfY
+<br>【百度網盤】：http://www.linkbucks.com/A2anJ
+<br>【百度密碼】：bufb
 
 <br>【節目名稱】：守下留情.2017-08-21
 <br>【節目頻道】：948
@@ -52,12 +52,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-08-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216538730
+<br>【MediaFire】：http://adf.ly/1nuklH
+<br>【MediaFire】：http://www.linkbucks.com/A2ald
+<br>【百度網盤】：http://adf.ly/1nukh7
+<br>【百度網盤】：http://www.linkbucks.com/A2amm
+<br>【百度密碼】：9969
 
 <br>【節目名稱】：Gimme 5.2017-08-21
 <br>【節目頻道】：948
