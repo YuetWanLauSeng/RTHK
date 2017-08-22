@@ -38,12 +38,12 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Made In HK.2017-08-22
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216636434
+<br>【MediaFire】：http://adf.ly/1nvc60
+<br>【MediaFire】：http://www.linkbucks.com/A2vg0
+<br>【百度網盤】：http://adf.ly/1nvcJa
+<br>【百度網盤】：http://www.linkbucks.com/A2vV6
+<br>【百度密碼】：as7v
 
 <br>【節目名稱】：守下留情.2017-08-22
 <br>【節目頻道】：948
@@ -52,12 +52,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-08-22
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216636460
+<br>【MediaFire】：http://adf.ly/1nvcCq
+<br>【MediaFire】：http://www.linkbucks.com/A2va2
+<br>【百度網盤】：http://adf.ly/1nvcHq
+<br>【百度網盤】：http://www.linkbucks.com/A2vWD
+<br>【百度密碼】：ndam
 
 <br>【節目名稱】：Gimme 5.2017-08-22
 <br>【節目頻道】：948
@@ -66,12 +66,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-08-22
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216636413
+<br>【MediaFire】：http://adf.ly/1nvcBo
+<br>【MediaFire】：http://www.linkbucks.com/A2vbx
+<br>【百度網盤】：http://adf.ly/1nvcKS
+<br>【百度網盤】：http://www.linkbucks.com/A2vU5
+<br>【百度密碼】：bdfs
 
 <br>【節目名稱】：恬淡情懷.2017-08-22
 <br>【節目頻道】：926
