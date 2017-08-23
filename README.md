@@ -31,33 +31,33 @@
 <br>【百度網盤】：http://www.linkbucks.com/A3Hhu
 <br>【百度密碼】：ygfg
 
-<br>【節目名稱】：Made in Hong Kong 李志剛.2017-08-23
+<br>【節目名稱】：Made in Hong Kong 李志剛（特備節目）.2017-08-23
 <br>【節目頻道】：948
 <br>【節目日期】：2017-08-23
 <br>【節目主持】：李志剛 | 超B
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Made In HK.2017-08-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216779311
+<br>【MediaFire】：http://adf.ly/1nwR9s
+<br>【MediaFire】：http://www.linkbucks.com/A2oFX
+<br>【百度網盤】：http://adf.ly/1nwRDm
+<br>【百度網盤】：http://www.linkbucks.com/A2oCo
+<br>【百度密碼】：3r5w
 
-<br>【節目名稱】：守下留情.2017-08-23
+<br>【節目名稱】：守下留情（特備節目）.2017-08-23
 <br>【節目頻道】：948
 <br>【節目日期】：2017-08-23
 <br>【節目主持】：劉偉恆 | 梁禮勤 | 阿一
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-08-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216779332
+<br>【MediaFire】：http://adf.ly/1nwR8y
+<br>【MediaFire】：http://www.linkbucks.com/A2oGh
+<br>【百度網盤】：http://adf.ly/1nwRCx
+<br>【百度網盤】：http://www.linkbucks.com/A2oC9
+<br>【百度密碼】：kbfk
 
 <br>【節目名稱】：Gimme 5.2017-08-23
 <br>【節目頻道】：948
@@ -66,12 +66,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-08-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216779282
+<br>【MediaFire】：http://adf.ly/1nwRBW
+<br>【MediaFire】：http://www.linkbucks.com/A2oDW
+<br>【百度網盤】：http://adf.ly/1nwRFH
+<br>【百度網盤】：http://www.linkbucks.com/A2oCd
+<br>【百度密碼】：t7sf
 
 <br>【節目名稱】：恬淡情懷.2017-08-23
 <br>【節目頻道】：926
