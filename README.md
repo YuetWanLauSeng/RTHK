@@ -104,14 +104,14 @@
 <br>【節目名稱】：講東講西.2017-08-23
 <br>【節目頻道】：926
 <br>【節目日期】：2017-08-23
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：文潔華 | 盧傑雄 | 馬恩賜
+<br>【節目話題】：剖析經驗
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-08-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216860588
+<br>【MediaFire】：http://adf.ly/1nwpn6
+<br>【MediaFire】：http://www.linkbucks.com/A2pot
+<br>【百度網盤】：http://adf.ly/1nwpir
+<br>【百度網盤】：http://www.linkbucks.com/A2ppi
+<br>【百度密碼】：ei9d
