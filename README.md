@@ -80,12 +80,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-08-25
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217058955
+<br>【MediaFire】：http://adf.ly/1ny6Vb
+<br>【MediaFire】：http://www.linkbucks.com/A28dz
+<br>【百度網盤】：http://adf.ly/1ny6Sn
+<br>【百度網盤】：http://www.linkbucks.com/A28e4
+<br>【百度密碼】：uiur
 
 <br>【節目名稱】：音樂情人.2017-08-25
 <br>【節目頻道】：926
@@ -94,18 +94,19 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-08-25
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217058916
+<br>【MediaFire】：http://adf.ly/1ny6WW
+<br>【MediaFire】：http://www.linkbucks.com/A28dk
+<br>【百度網盤】：http://adf.ly/1ny6Qv
+<br>【百度網盤】：http://www.linkbucks.com/A28fL
+<br>【百度密碼】：2a52
 
 <br>【節目名稱】：講東講西.2017-08-25
 <br>【節目頻道】：926
 <br>【節目日期】：2017-08-25
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：王兆俊 | 胡世傑
+<br>【節目嘉賓】：白只 | 陳詠燊 | 柯大衛
+<br>【節目話題】：演藝搖籃
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-08-25
 <br>【節目版本】：未剪輯版
