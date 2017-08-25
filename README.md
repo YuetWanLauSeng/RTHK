@@ -52,12 +52,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-08-25
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217048353
+<br>【MediaFire】：http://adf.ly/1nxyig
+<br>【MediaFire】：http://www.linkbucks.com/A29yd
+<br>【百度網盤】：http://adf.ly/1nxyjn
+<br>【百度網盤】：http://www.linkbucks.com/A29yT
+<br>【百度密碼】：ibqn
 
 <br>【節目名稱】：Gimme 5.2017-08-25
 <br>【節目頻道】：948
