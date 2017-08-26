@@ -48,12 +48,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：World Discovery.2017-08-26
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217140422
+<br>【MediaFire】：http://adf.ly/1nyoPr
+<br>【MediaFire】：http://www.linkbucks.com/CHIKl
+<br>【百度網盤】：http://adf.ly/1nyoFq
+<br>【百度網盤】：http://www.linkbucks.com/CHIYn
+<br>【百度密碼】：jqrn
 
 <br>【節目名稱】：波樂無窮.2017-08-26
 <br>【節目頻道】：926
@@ -61,12 +61,12 @@
 <br>【節目時間】：18:20 - 19:00
 <br>【檔案名稱】：BallRocks.2017-08-26
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217140122
+<br>【MediaFire】：http://adf.ly/1nyoRb
+<br>【MediaFire】：http://www.linkbucks.com/CHIFo
+<br>【百度網盤】：http://adf.ly/1nyoP6
+<br>【百度網盤】：http://www.linkbucks.com/CHILf
+<br>【百度密碼】：dq6d
 
 <br>【節目名稱】：十項全能.2017-08-26
 <br>【節目頻道】：926
@@ -74,12 +74,12 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Decathlon.2017-08-26
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217140201
+<br>【MediaFire】：http://adf.ly/1nyoR5
+<br>【MediaFire】：http://www.linkbucks.com/CHIIU
+<br>【百度網盤】：http://adf.ly/1nyoOB
+<br>【百度網盤】：http://www.linkbucks.com/CHIMY
+<br>【百度密碼】：yug9
 
 <br>【節目名稱】：古今風雲人物.2017-08-26
 <br>【節目頻道】：926
@@ -87,12 +87,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：People.2017-08-26
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217140237
+<br>【MediaFire】：http://adf.ly/1nyoTO
+<br>【MediaFire】：http://www.linkbucks.com/CHIDR
+<br>【百度網盤】：http://adf.ly/1nyoNV
+<br>【百度網盤】：http://www.linkbucks.com/CHINJ
+<br>【百度密碼】：a8c9
 
 <br>【節目名稱】：尋找繆思.2017-08-26
 <br>【節目頻道】：948
@@ -100,12 +100,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：Searching For The Muses.2017-08-26
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217140296
+<br>【MediaFire】：http://adf.ly/1nyoT1
+<br>【MediaFire】：http://www.linkbucks.com/CHID5
+<br>【百度網盤】：http://adf.ly/1nyoMd
+<br>【百度網盤】：http://www.linkbucks.com/CHIOA
+<br>【百度密碼】：e57d
 
 <br>【節目名稱】：電影兩面睇.2017-08-26
 <br>【節目頻道】：926
