@@ -3,116 +3,132 @@
 
 <br>【更多節目請瀏覽】：https://github.com/YuetWanLauSeng/RTHK
 
-<br>【節目名稱】：開心日報.2017-08-25
+<br>【節目名稱】：香港家書.2017-08-26
 <br>【節目頻道】：926
-<br>【節目日期】：2017-08-25
-<br>【節目主持】：何守信 | 陳淑蘭 | 林超榮 | 丹尼爾 | 杜雯惠
-<br>【節目時間】：10:20 - 12:00
-<br>【檔案名稱】：Happy Daily.2017-08-25
+<br>【節目主持】：蕭洛汶 | 陳顥之
+<br>【節目時間】：09:00 - 09:20
+<br>【檔案名稱】：HK Letter.2017-08-26
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217017897
-<br>【MediaFire】：http://adf.ly/1nxnt9
-<br>【MediaFire】：http://www.linkbucks.com/A24yw
-<br>【百度網盤】：http://adf.ly/1nxnuI
-<br>【百度網盤】：http://www.linkbucks.com/A24yk
-<br>【百度密碼】：tt48
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217101299
+<br>【MediaFire】：http://adf.ly/1nycpB
+<br>【MediaFire】：http://www.linkbucks.com/A3CqJ
+<br>【百度網盤】：http://adf.ly/1nyciU
+<br>【百度網盤】：http://www.linkbucks.com/A3COF
+<br>【百度密碼】：jcxt
 
-<br>【節目名稱】：瘋Show快活人.2017-08-25
-<br>【節目頻道】：948
-<br>【節目日期】：2017-08-25
-<br>【節目主持】：貴花田 | 曾志豪 | 王耀祖 | 斌仔 | 黃天頤 | 波盛
-<br>【節目時間】：10:00 - 13:00
-<br>【檔案名稱】：Crazy And Happy.2017-08-25
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217017665
-<br>【MediaFire】：http://adf.ly/1nxnsT
-<br>【MediaFire】：http://www.linkbucks.com/A24y6
-<br>【百度網盤】：http://adf.ly/1nxnvK
-<br>【百度網盤】：http://www.linkbucks.com/A24yN
-<br>【百度密碼】：m5h3
-
-<br>【節目名稱】：Made in Hong Kong 李志剛.2017-08-25
-<br>【節目頻道】：948
-<br>【節目日期】：2017-08-25
-<br>【節目主持】：李志剛 | 超B
-<br>【節目時間】：13:00 - 15:00
-<br>【檔案名稱】：Made In HK.2017-08-25
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217029625
-<br>【MediaFire】：http://adf.ly/1nxryJ
-<br>【MediaFire】：http://www.linkbucks.com/A3Bfj
-<br>【百度網盤】：http://adf.ly/1nxro1
-<br>【百度網盤】：http://www.linkbucks.com/A3BiG
-<br>【百度密碼】：2fcs
-
-<br>【節目名稱】：守下留情.2017-08-25
-<br>【節目頻道】：948
-<br>【節目日期】：2017-08-25
-<br>【節目主持】：劉偉恆 | 梁禮勤 | 阿一
-<br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：SeeSaw.2017-08-25
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217048353
-<br>【MediaFire】：http://adf.ly/1nxyig
-<br>【MediaFire】：http://www.linkbucks.com/A29yd
-<br>【百度網盤】：http://adf.ly/1nxyjn
-<br>【百度網盤】：http://www.linkbucks.com/A29yT
-<br>【百度密碼】：ibqn
-
-<br>【節目名稱】：Gimme 5.2017-08-25
-<br>【節目頻道】：948
-<br>【節目日期】：2017-08-25
-<br>【節目主持】：梁德輝 | 黃天頤 | 波盛
-<br>【節目時間】：17:00 - 19:00
-<br>【檔案名稱】：Gimme 5.2017-08-25
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217054580
-<br>【MediaFire】：http://adf.ly/1ny39A
-<br>【MediaFire】：http://www.linkbucks.com/A29AP
-<br>【百度網盤】：http://adf.ly/1ny38b
-<br>【百度網盤】：http://www.linkbucks.com/A29Ac
-<br>【百度密碼】：p7te
-
-<br>【節目名稱】：恬淡情懷.2017-08-25
+<br>【節目名稱】：十萬八千里.2017-08-26
 <br>【節目頻道】：926
-<br>【節目日期】：2017-08-25
-<br>【節目主持】：鄧慧詩
-<br>【節目時間】：20:00 - 21:00
-<br>【檔案名稱】：Subtle Sensuality.2017-08-25
+<br>【節目主持】：陸宇光 | 譚永暉
+<br>【節目時間】：11:00 - 12:00
+<br>【檔案名稱】：World In A Nutshell.2017-08-26
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217058955
-<br>【MediaFire】：http://adf.ly/1ny6Vb
-<br>【MediaFire】：http://www.linkbucks.com/A28dz
-<br>【百度網盤】：http://adf.ly/1ny6Sn
-<br>【百度網盤】：http://www.linkbucks.com/A28e4
-<br>【百度密碼】：uiur
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217101332
+<br>【MediaFire】：http://adf.ly/1nycoT
+<br>【MediaFire】：http://www.linkbucks.com/A3CqW
+<br>【百度網盤】：http://adf.ly/1nycho
+<br>【百度網盤】：http://www.linkbucks.com/A3CNj
+<br>【百度密碼】：7icv
 
-<br>【節目名稱】：音樂情人.2017-08-25
+<br>【節目名稱】：五十年後.2017-08-26
 <br>【節目頻道】：926
-<br>【節目日期】：2017-08-25
-<br>【節目主持】：鄭子誠
+<br>【節目主持】：葉國華
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：50 Years After.2017-08-26
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217101214
+<br>【MediaFire】：http://adf.ly/1nycon
+<br>【MediaFire】：http://www.linkbucks.com/A3CqS
+<br>【百度網盤】：http://adf.ly/1nycnk
+<br>【百度網盤】：http://www.linkbucks.com/A3COd
+<br>【百度密碼】：vhkz
+
+<br>【節目名稱】：旅遊樂園.2017-08-26
+<br>【節目頻道】：926
+<br>【節目主持】：張建浩 | 劉蓮 | 區凱聲 | Zeno
+<br>【節目時間】：16:00 - 18:00
+<br>【檔案名稱】：World Discovery.2017-08-26
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：波樂無窮.2017-08-26
+<br>【節目頻道】：926
+<br>【節目主持】：何靜江 | 丹尼爾 | 黃興桂
+<br>【節目時間】：18:20 - 19:00
+<br>【檔案名稱】：BallRocks.2017-08-26
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：十項全能.2017-08-26
+<br>【節目頻道】：926
+<br>【節目主持】：雷雄德 | 徐嘉樂 | 余翠怡 | 林普斯
+<br>【節目時間】：19:00 - 20:00
+<br>【檔案名稱】：Decathlon.2017-08-26
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：古今風雲人物.2017-08-26
+<br>【節目頻道】：926
+<br>【節目主持】：張偉國 | 麥勁生 | 曾卓然 | 羅永生
+<br>【節目時間】：20:00 - 20:30
+<br>【檔案名稱】：People.2017-08-26
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：尋找繆思.2017-08-26
+<br>【節目頻道】：948
+<br>【節目主持】：杜婷
+<br>【節目時間】：20:00 - 20:30
+<br>【檔案名稱】：Searching For The Muses.2017-08-26
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：電影兩面睇.2017-08-26
+<br>【節目頻道】：926
+<br>【節目主持】：李思維 | 紀陶 | 許永耀
 <br>【節目時間】：21:00 - 22:00
-<br>【檔案名稱】：Music Lover.2017-08-25
+<br>【檔案名稱】：Movie World.2017-08-26
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217058916
-<br>【MediaFire】：http://adf.ly/1ny6WW
-<br>【MediaFire】：http://www.linkbucks.com/A28dk
-<br>【百度網盤】：http://adf.ly/1ny6Qv
-<br>【百度網盤】：http://www.linkbucks.com/A28fL
-<br>【百度密碼】：2a52
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：講東講西.2017-08-25
+<br>【節目名稱】：有種回憶.2017-08-26
 <br>【節目頻道】：926
-<br>【節目日期】：2017-08-25
-<br>【節目主持】：王兆俊 | 胡世傑
-<br>【節目嘉賓】：白只 | 陳詠燊 | 柯大衛
-<br>【節目話題】：演藝搖籃
-<br>【節目時間】：23:00 - 01:00
-<br>【檔案名稱】：Free As The Wind.2017-08-25
+<br>【節目主持】：林普斯 | 阿囉 | 黃天恩
+<br>【節目時間】：22:20 - 24:00
+<br>【檔案名稱】：All About Memories.2017-08-26
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217092598
-<br>【MediaFire】：http://adf.ly/1nyVjY
-<br>【MediaFire】：http://www.linkbucks.com/A3EJX
-<br>【百度網盤】：http://adf.ly/1nyVj1
-<br>【百度網盤】：http://www.linkbucks.com/A3EJg
-<br>【百度密碼】：y37z
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
