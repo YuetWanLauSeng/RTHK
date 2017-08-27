@@ -18,6 +18,19 @@
 <br>【節目版本】：非剪輯版
 <br>【節目暫停】：因八號風球本期節目暫停
 
+<br>【節目名稱】：中女宅男殺很大.2017-08-27
+<br>【節目頻道】：Radio2
+<br>【節目主持】：彭晴 | 曾志豪
+<br>【節目時間】：14:00 - 5:00
+<br>【檔案名稱】：Lassies and Nerds.2017-08-27
+<br>【節目版本】：非剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217225518
+<br>【MediaFire】：http://adf.ly/1nzYH0
+<br>【MediaFire】：http://www.linkbucks.com/CIcBj
+<br>【百度網盤】：http://adf.ly/1nzYHX
+<br>【百度網盤】：http://www.linkbucks.com/CIcAm
+<br>【百度密碼】：ijhh
+
 <br>【節目名稱】：大學堂.2017-08-27
 <br>【節目頻道】：926
 <br>【節目主持】：趙善恩
