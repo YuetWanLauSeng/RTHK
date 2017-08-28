@@ -52,12 +52,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-08-28
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217294561
+<br>【MediaFire】：http://adf.ly/1o03VU
+<br>【MediaFire】：http://www.linkbucks.com/CJW7u
+<br>【百度網盤】：http://adf.ly/1o03Sp
+<br>【百度網盤】：http://www.linkbucks.com/CJXHQ
+<br>【百度密碼】：6ga9
 
 <br>【節目名稱】：Four for Classics 四時行樂.2017-08-28
 <br>【節目頻道】：Radio4
