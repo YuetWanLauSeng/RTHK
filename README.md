@@ -50,9 +50,9 @@
 <br>【節目時間】：21:00 - 24:00
 <br>【檔案名稱】：Reunion.2017-08-27
 <br>【節目版本】：非剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217241522
+<br>【MediaFire】：http://adf.ly/1nzoT6
+<br>【MediaFire】：http://www.linkbucks.com/CI9X6
+<br>【百度網盤】：http://adf.ly/1nzoTz
+<br>【百度網盤】：http://www.linkbucks.com/CI9Xn
+<br>【百度密碼】：ie74
