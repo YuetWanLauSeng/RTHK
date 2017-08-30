@@ -38,12 +38,12 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Made In HK.2017-08-30
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217574378
+<br>【MediaFire】：http://adf.ly/1o1W5f
+<br>【MediaFire】：http://www.linkbucks.com/CLvHR
+<br>【百度網盤】：http://adf.ly/1o1W88
+<br>【百度網盤】：http://www.linkbucks.com/CLu95
+<br>【百度密碼】：4yuw
 
 <br>【節目名稱】：守下留情.2017-08-30
 <br>【節目頻道】：Radio2
@@ -52,12 +52,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-08-30
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217574504
+<br>【MediaFire】：http://adf.ly/1o1W5J
+<br>【MediaFire】：http://www.linkbucks.com/CLvMs
+<br>【百度網盤】：http://adf.ly/1o1W7J
+<br>【百度網盤】：http://www.linkbucks.com/CLvBh
+<br>【百度密碼】：p8ps
 
 <br>【節目名稱】：Four for Classics 四時行樂.2017-08-30
 <br>【節目頻道】：Radio4
@@ -66,12 +66,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：Four for Classics.2017-08-30
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217574071
+<br>【MediaFire】：http://adf.ly/1o1W67
+<br>【MediaFire】：http://www.linkbucks.com/CLvGn
+<br>【百度網盤】：http://adf.ly/1o1W8f
+<br>【百度網盤】：http://www.linkbucks.com/CLu8j
+<br>【百度密碼】：4f5f
 
 <br>【節目名稱】：Gimme 5.2017-08-30
 <br>【節目頻道】：Radio2
@@ -80,12 +80,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-08-30
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217574264
+<br>【MediaFire】：http://adf.ly/1o1W6X
+<br>【MediaFire】：http://www.linkbucks.com/CLvEw
+<br>【百度網盤】：http://adf.ly/1o1W9Z
+<br>【百度網盤】：http://www.linkbucks.com/CLu6V
+<br>【百度密碼】：rd1i
 
 <br>【節目名稱】：恬淡情懷.2017-08-30
 <br>【節目頻道】：Radio1
