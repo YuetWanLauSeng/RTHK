@@ -118,14 +118,14 @@
 <br>【節目名稱】：講東講西.2017-08-30
 <br>【節目頻道】：Radio1
 <br>【節目日期】：2017-08-30
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：文潔華 | 盧傑雄 | 陶國璋
+<br>【節目話題】：本土價值
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-08-30
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217614950
+<br>【MediaFire】：http://adf.ly/1o1rBf
+<br>【MediaFire】：http://www.linkbucks.com/CMbW6
+<br>【百度網盤】：http://adf.ly/1o1r8N
+<br>【百度網盤】：http://www.linkbucks.com/CMbeg
+<br>【百度密碼】：n8p3
