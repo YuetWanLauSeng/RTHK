@@ -48,12 +48,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：World Discovery.2017-09-02
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218387171
+<br>【MediaFire】：http://adf.ly/1o3udM
+<br>【MediaFire】：http://www.linkbucks.com/CRDlE
+<br>【百度網盤】：http://adf.ly/1o3uec
+<br>【百度網盤】：http://www.linkbucks.com/CRDdW
+<br>【百度密碼】：hgnh
 
 <br>【節目名稱】：波樂無窮.2017-09-02
 <br>【節目頻道】：Radio1
@@ -61,12 +61,12 @@
 <br>【節目時間】：18:20 - 19:00
 <br>【檔案名稱】：BallRocks.2017-09-02
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218386116
+<br>【MediaFire】：http://adf.ly/1o3uct
+<br>【MediaFire】：http://www.linkbucks.com/CRDlX
+<br>【百度網盤】：http://adf.ly/1o3uf5
+<br>【百度網盤】：http://www.linkbucks.com/CRDc8
+<br>【百度密碼】：bdc2
 
 <br>【節目名稱】：十項全能.2017-09-02
 <br>【節目頻道】：Radio1
@@ -74,12 +74,12 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Decathlon.2017-09-02
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218386205
+<br>【MediaFire】：http://adf.ly/1o3ube
+<br>【MediaFire】：http://www.linkbucks.com/CRDmB
+<br>【百度網盤】：http://adf.ly/1o3ufi
+<br>【百度網盤】：http://www.linkbucks.com/CRDZt
+<br>【百度密碼】：c8bf
 
 <br>【節目名稱】：古今風雲人物.2017-09-02
 <br>【節目頻道】：Radio1
@@ -87,12 +87,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：People.2017-09-02
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218386390
+<br>【MediaFire】：http://adf.ly/1o3uaP
+<br>【MediaFire】：http://www.linkbucks.com/CRDpo
+<br>【百度網盤】：http://adf.ly/1o3ug8
+<br>【百度網盤】：http://www.linkbucks.com/CRDYO
+<br>【百度密碼】：2qcv
 
 <br>【節目名稱】：尋找繆思.2017-09-02
 <br>【節目頻道】：Radio2
@@ -100,12 +100,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：Searching For The Muses.2017-09-02
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218386605
+<br>【MediaFire】：http://adf.ly/1o3uZi
+<br>【MediaFire】：http://www.linkbucks.com/CRDsB
+<br>【百度網盤】：http://adf.ly/1o3uhX
+<br>【百度網盤】：http://www.linkbucks.com/CRDHo
+<br>【百度密碼】：v7ud
 
 <br>【節目名稱】：電影兩面睇.2017-09-02
 <br>【節目頻道】：Radio1
@@ -113,12 +113,12 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Movie World.2017-09-02
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218386317
+<br>【MediaFire】：http://adf.ly/1o3uYr
+<br>【MediaFire】：http://www.linkbucks.com/CRDvX
+<br>【百度網盤】：http://adf.ly/1o3uk0
+<br>【百度網盤】：http://www.linkbucks.com/CRDHR
+<br>【百度密碼】：gnyq
 
 <br>【節目名稱】：有種回憶.2017-09-02
 <br>【節目頻道】：Radio1
@@ -126,9 +126,9 @@
 <br>【節目時間】：22:20 - 24:00
 <br>【檔案名稱】：All About Memories.2017-09-02
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218488900
+<br>【MediaFire】：http://adf.ly/1o3uSd
+<br>【MediaFire】：http://www.linkbucks.com/CREIj
+<br>【百度網盤】：http://adf.ly/1o3ukg
+<br>【百度網盤】：http://www.linkbucks.com/CRDGo
+<br>【百度密碼】：u891
