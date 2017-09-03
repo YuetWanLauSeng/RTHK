@@ -37,12 +37,12 @@
 <br>【節目時間】：14:00 - 16:00
 <br>【檔案名稱】：Lassies and Nerds.2017-09-03
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218505435
+<br>【MediaFire】：http://adf.ly/1o451L
+<br>【MediaFire】：http://www.linkbucks.com/CRv4Z
+<br>【百度網盤】：http://adf.ly/1o453n
+<br>【百度網盤】：http://www.linkbucks.com/CRv0j
+<br>【百度密碼】：wbkm
 
 <br>【節目名稱】：大學堂.2017-09-03
 <br>【節目頻道】：Radio1
