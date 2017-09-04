@@ -95,11 +95,11 @@
 <br>【檔案名稱】：Subtle Sensuality.2017-09-04
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4gpy
+<br>【MediaFire】：http://www.linkbucks.com/CTae3
+<br>【百度網盤】：http://adf.ly/1o4gpJ
+<br>【百度網盤】：http://www.linkbucks.com/CTafs
+<br>【百度密碼】：8vnn
 
 <br>【節目名稱】：音樂情人.2017-09-04
 <br>【節目頻道】：Radio1
@@ -109,17 +109,17 @@
 <br>【檔案名稱】：Music Lover.2017-09-04
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4gpi
+<br>【MediaFire】：http://www.linkbucks.com/CTafb
+<br>【百度網盤】：http://adf.ly/1o4gii
+<br>【百度網盤】：http://www.linkbucks.com/CTas9
+<br>【百度密碼】：bchb
 
 <br>【節目名稱】：講東講西.2017-09-04
 <br>【節目頻道】：Radio1
 <br>【節目日期】：2017-09-04
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：劉天賜 | 馬鼎盛 | 文潔華
+<br>【節目話題】：家庭
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-09-04
 <br>【節目版本】：未剪輯版
