@@ -10,7 +10,7 @@
 <br>【節目時間】：10:20 - 12:00
 <br>【檔案名稱】：Happy Daily.2017-09-04
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218539933
 <br>【MediaFire】：http://adf.ly/1o4Vb5
 <br>【MediaFire】：http://www.linkbucks.com/CS1Rx
 <br>【百度網盤】：http://adf.ly/1o4VcN
@@ -24,7 +24,7 @@
 <br>【節目時間】：10:00 - 13:00
 <br>【檔案名稱】：Crazy And Happy.2017-09-04
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218539650
 <br>【MediaFire】：http://adf.ly/1o4Vb5
 <br>【MediaFire】：http://www.linkbucks.com/CS1OG
 <br>【百度網盤】：http://adf.ly/1o4Vfq
@@ -38,7 +38,7 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Made In HK.2017-09-04
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218540432
 <br>【MediaFire】：http://adf.ly/1o4bz8
 <br>【MediaFire】：http://www.linkbucks.com/CTJ2J
 <br>【百度網盤】：http://adf.ly/1o4bx7
@@ -52,7 +52,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-09-04
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218540676
 <br>【MediaFire】：http://adf.ly/1o4bzx
 <br>【MediaFire】：http://www.linkbucks.com/CTJrK
 <br>【百度網盤】：http://adf.ly/1o4bwN
@@ -66,7 +66,7 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：Four for Classics.2017-09-04
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218539822
 <br>【MediaFire】：http://adf.ly/1o4byC
 <br>【MediaFire】：http://www.linkbucks.com/CTJ8d
 <br>【百度網盤】：http://adf.ly/1o4bxo
@@ -80,7 +80,7 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-09-04
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218539841
 <br>【MediaFire】：http://adf.ly/1o4byl
 <br>【MediaFire】：http://www.linkbucks.com/CTJ35
 <br>【百度網盤】：http://adf.ly/1o4bxU
@@ -94,7 +94,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-09-04
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218540753
 <br>【MediaFire】：http://adf.ly/1o4gpy
 <br>【MediaFire】：http://www.linkbucks.com/CTae3
 <br>【百度網盤】：http://adf.ly/1o4gpJ
@@ -108,7 +108,7 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-09-04
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218540454
 <br>【MediaFire】：http://adf.ly/1o4gpi
 <br>【MediaFire】：http://www.linkbucks.com/CTafb
 <br>【百度網盤】：http://adf.ly/1o4gii
