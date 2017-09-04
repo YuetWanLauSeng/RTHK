@@ -39,11 +39,11 @@
 <br>【檔案名稱】：Made In HK.2017-09-04
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4bz8
+<br>【MediaFire】：http://www.linkbucks.com/CTJ2J
+<br>【百度網盤】：http://adf.ly/1o4bx7
+<br>【百度網盤】：http://www.linkbucks.com/CTKMB
+<br>【百度密碼】：af8k
 
 <br>【節目名稱】：守下留情.2017-09-04
 <br>【節目頻道】：Radio2
@@ -53,11 +53,11 @@
 <br>【檔案名稱】：SeeSaw.2017-09-04
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4bzx
+<br>【MediaFire】：http://www.linkbucks.com/CTJrK
+<br>【百度網盤】：http://adf.ly/1o4bwN
+<br>【百度網盤】：http://www.linkbucks.com/CTKNL
+<br>【百度密碼】：ggfn
 
 <br>【節目名稱】：Four for Classics 四時行樂.2017-09-04
 <br>【節目頻道】：Radio4
@@ -67,11 +67,11 @@
 <br>【檔案名稱】：Four for Classics.2017-09-04
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4byC
+<br>【MediaFire】：http://www.linkbucks.com/CTJ8d
+<br>【百度網盤】：http://adf.ly/1o4bxo
+<br>【百度網盤】：http://www.linkbucks.com/CTKAn
+<br>【百度密碼】：gfs3
 
 <br>【節目名稱】：Gimme 5.2017-09-04
 <br>【節目頻道】：Radio2
@@ -81,11 +81,11 @@
 <br>【檔案名稱】：Gimme 5.2017-09-04
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4byl
+<br>【MediaFire】：http://www.linkbucks.com/CTJ35
+<br>【百度網盤】：http://adf.ly/1o4bxU
+<br>【百度網盤】：http://www.linkbucks.com/CTKLE
+<br>【百度密碼】：jv83
 
 <br>【節目名稱】：恬淡情懷.2017-09-04
 <br>【節目頻道】：Radio1
