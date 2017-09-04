@@ -64,8 +64,8 @@
 <br>【檔案名稱】：Reunion.2017-09-03
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4O6d
+<br>【MediaFire】：http://www.linkbucks.com/CSip7
+<br>【百度網盤】：http://adf.ly/1o4O8h
+<br>【百度網盤】：http://www.linkbucks.com/CSidy
+<br>【百度密碼】：u2wc
