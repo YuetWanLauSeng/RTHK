@@ -94,12 +94,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-09-05
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218664885
+<br>【MediaFire】：http://adf.ly/1o5Csj
+<br>【MediaFire】：http://www.linkbucks.com/CUz4U
+<br>【百度網盤】：http://adf.ly/1o5CtK
+<br>【百度網盤】：http://www.linkbucks.com/CUz2y
+<br>【百度密碼】：5fgp
 
 <br>【節目名稱】：音樂情人.2017-09-05
 <br>【節目頻道】：Radio1
@@ -108,18 +108,18 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-09-05
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218664843
+<br>【MediaFire】：http://adf.ly/1o5CsQ
+<br>【MediaFire】：http://www.linkbucks.com/CUz5G
+<br>【百度網盤】：http://adf.ly/1o5Ctp
+<br>【百度網盤】：http://www.linkbucks.com/CUz0s
+<br>【百度密碼】：ihzb
 
 <br>【節目名稱】：講東講西.2017-09-05
 <br>【節目頻道】：Radio1
 <br>【節目日期】：2017-09-05
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：劉天賜 | 岑逸飛 | 莫健麟 | 陳令名
+<br>【節目話題】：接班人
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-09-05
 <br>【節目版本】：未剪輯版
