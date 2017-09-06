@@ -24,12 +24,12 @@
 <br>【節目時間】：10:00 - 13:00
 <br>【檔案名稱】：Crazy And Happy.2017-09-06
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218718762
+<br>【MediaFire】：http://adf.ly/1o5cBV
+<br>【MediaFire】：http://www.linkbucks.com/CVv6V
+<br>【百度網盤】：http://adf.ly/1o5c1S
+<br>【百度網盤】：http://www.linkbucks.com/CVwR9
+<br>【百度密碼】：kdtd
 
 <br>【節目名稱】：Made in Hong Kong 李志剛.2017-09-06
 <br>【節目頻道】：Radio2
@@ -38,12 +38,12 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Made In HK.2017-09-06
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218718816
+<br>【MediaFire】：http://adf.ly/1o5c3s
+<br>【MediaFire】：http://www.linkbucks.com/CVwOq
+<br>【百度網盤】：http://adf.ly/1o5c18
+<br>【百度網盤】：http://www.linkbucks.com/CVwS3
+<br>【百度密碼】：bv2i
 
 <br>【節目名稱】：守下留情.2017-09-06
 <br>【節目頻道】：Radio2
@@ -52,12 +52,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-09-06
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218718887
+<br>【MediaFire】：http://adf.ly/1o5c4b
+<br>【MediaFire】：http://www.linkbucks.com/CVwNE
+<br>【百度網盤】：http://adf.ly/1o5bzt
+<br>【百度網盤】：http://www.linkbucks.com/CVwVe
+<br>【百度密碼】：qeqi
 
 <br>【節目名稱】：Four for Classics 四時行樂.2017-09-06
 <br>【節目頻道】：Radio4
