@@ -40,12 +40,12 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Made In HK.2017-09-15
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219759403
+<br>【MediaFire】：http://adf.ly/1oBAmw
+<br>【MediaFire】：http://www.linkbucks.com/CdQ0x
+<br>【百度網盤】：http://adf.ly/1oBAh7
+<br>【百度網盤】：http://www.linkbucks.com/CdRVH
+<br>【百度密碼】：uywj
 
 <br>【節目名稱】：守下留情.2017-09-15
 <br>【節目頻道】：Radio2
@@ -54,12 +54,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-09-15
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219759594
+<br>【MediaFire】：http://adf.ly/1oBAnD
+<br>【MediaFire】：http://www.linkbucks.com/CdQ0p
+<br>【百度網盤】：http://adf.ly/1oBAhj
+<br>【百度網盤】：http://www.linkbucks.com/CdRS6
+<br>【百度密碼】：4rnq
 
 <br>【節目名稱】：Four for Classics 四時行樂.2017-09-15
 <br>【節目頻道】：Radio4
