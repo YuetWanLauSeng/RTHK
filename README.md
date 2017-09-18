@@ -50,12 +50,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：University Knowledge Platform.2017-09-17
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219970408
+<br>【MediaFire】：http://adf.ly/1oCsUR
+<br>【MediaFire】：http://www.linkbucks.com/A3Qys
+<br>【百度網盤】：http://adf.ly/1oCsTb
+<br>【百度網盤】：http://www.linkbucks.com/A3Qyy
+<br>【百度密碼】：3fmh
 
 <br>【節目名稱】：2000靚歌再重聚.2017-09-17
 <br>【節目頻道】：Radio2
@@ -63,9 +63,9 @@
 <br>【節目時間】：21:00 - 24:00
 <br>【檔案名稱】：Reunion.2017-09-17
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219983510
+<br>【MediaFire】：http://adf.ly/1oCsU1
+<br>【MediaFire】：http://www.linkbucks.com/A3Qyv
+<br>【百度網盤】：http://adf.ly/1oCsSz
+<br>【百度網盤】：http://www.linkbucks.com/A3Qy9
+<br>【百度密碼】：784s
