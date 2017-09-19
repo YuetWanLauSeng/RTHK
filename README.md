@@ -94,12 +94,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-09-19
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220361503
+<br>【MediaFire】：http://adf.ly/1oE1pc
+<br>【MediaFire】：http://www.linkbucks.com/A3g3K
+<br>【百度網盤】：http://adf.ly/1oE1TH
+<br>【百度網盤】：http://www.linkbucks.com/A3g56
+<br>【百度密碼】：523q
 
 <br>【節目名稱】：音樂情人.2017-09-19
 <br>【節目頻道】：Radio1
@@ -108,12 +108,12 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-09-19
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220361440
+<br>【MediaFire】：http://adf.ly/1oE1qD
+<br>【MediaFire】：http://www.linkbucks.com/A3g2t
+<br>【百度網盤】：http://adf.ly/1oE1Y5
+<br>【百度網盤】：http://www.linkbucks.com/A3g5e
+<br>【百度密碼】：xtyg
 
 <br>【節目名稱】：講東講西.2017-09-19
 <br>【節目頻道】：Radio1
