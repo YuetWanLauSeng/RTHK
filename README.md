@@ -66,12 +66,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：Four for Classics.2017-09-19
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220352248
+<br>【MediaFire】：http://adf.ly/1oDukF
+<br>【MediaFire】：http://www.linkbucks.com/A3iLE
+<br>【百度網盤】：http://adf.ly/1oDull
+<br>【百度網盤】：http://www.linkbucks.com/A3iKs
+<br>【百度密碼】：pcbb
 
 <br>【節目名稱】：Gimme 5.2017-09-19
 <br>【節目頻道】：Radio2
@@ -80,12 +80,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-09-19
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220352562
+<br>【MediaFire】：http://adf.ly/1oDukl
+<br>【MediaFire】：http://www.linkbucks.com/A3iLB
+<br>【百度網盤】：http://adf.ly/1oDun6
+<br>【百度網盤】：http://www.linkbucks.com/A3iKh
+<br>【百度密碼】：9s88
 
 <br>【節目名稱】：恬淡情懷.2017-09-19
 <br>【節目頻道】：Radio1
