@@ -66,12 +66,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：Four for Classics.2017-09-20
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220398442
+<br>【MediaFire】：http://adf.ly/1oEnBv
+<br>【MediaFire】：http://www.linkbucks.com/A30bl
+<br>【百度網盤】：http://adf.ly/1oEnDL
+<br>【百度網盤】：http://www.linkbucks.com/A30bF
+<br>【百度密碼】：uhs7
 
 <br>【節目名稱】：Gimme 5.2017-09-20
 <br>【節目頻道】：Radio2
@@ -80,12 +80,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-09-20
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220398290
+<br>【MediaFire】：http://adf.ly/1oEnB7
+<br>【MediaFire】：http://www.linkbucks.com/A30b8
+<br>【百度網盤】：http://adf.ly/1oEnDw
+<br>【百度網盤】：http://www.linkbucks.com/A30aw
+<br>【百度密碼】：rvz4
 
 <br>【節目名稱】：恬淡情懷.2017-09-20
 <br>【節目頻道】：Radio1
@@ -94,12 +94,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-09-20
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220398322
+<br>【MediaFire】：http://adf.ly/1oEnAc
+<br>【MediaFire】：http://www.linkbucks.com/A30cE
+<br>【百度網盤】：http://adf.ly/1oEnEW
+<br>【百度網盤】：http://www.linkbucks.com/A30am
+<br>【百度密碼】：73k8
 
 <br>【節目名稱】：音樂情人.2017-09-20
 <br>【節目頻道】：Radio1
@@ -108,12 +108,12 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-09-20
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220398443
+<br>【MediaFire】：http://adf.ly/1oEnA5
+<br>【MediaFire】：http://www.linkbucks.com/A30cX
+<br>【百度網盤】：http://adf.ly/1oEnF1
+<br>【百度網盤】：http://www.linkbucks.com/A30aV
+<br>【百度密碼】：4vs8
 
 <br>【節目名稱】：講東講西.2017-09-20
 <br>【節目頻道】：Radio1
