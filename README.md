@@ -38,12 +38,12 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Made In HK.2017-09-20
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220384079
+<br>【MediaFire】：http://adf.ly/1oEW9S
+<br>【MediaFire】：http://www.linkbucks.com/A3moo
+<br>【百度網盤】：http://adf.ly/1oEWB0
+<br>【百度網盤】：http://www.linkbucks.com/A3moj
+<br>【百度密碼】：r446
 
 <br>【節目名稱】：守下留情.2017-09-20
 <br>【節目頻道】：Radio2
