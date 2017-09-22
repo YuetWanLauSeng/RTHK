@@ -80,12 +80,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-09-22
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220809477
+<br>【MediaFire】：http://adf.ly/1oGNyN
+<br>【MediaFire】：http://www.linkbucks.com/A3q7v
+<br>【百度網盤】：http://adf.ly/1oGO8z
+<br>【百度網盤】：http://www.linkbucks.com/AJ5cF
+<br>【百度密碼】：7hrw
 
 <br>【節目名稱】：恬淡情懷.2017-09-22
 <br>【節目頻道】：Radio1
@@ -94,12 +94,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-09-22
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220817136
+<br>【MediaFire】：http://adf.ly/1oGO06
+<br>【MediaFire】：http://www.linkbucks.com/A3q7C
+<br>【百度網盤】：http://adf.ly/1oGO6u
+<br>【百度網盤】：http://www.linkbucks.com/A3q3g
+<br>【百度密碼】：w87h
 
 <br>【節目名稱】：音樂情人.2017-09-22
 <br>【節目頻道】：Radio1
