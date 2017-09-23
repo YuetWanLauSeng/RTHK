@@ -42,6 +42,19 @@
 <br>【百度網盤】：http://www.linkbucks.com/A4MT4
 <br>【百度密碼】：8sc2
 
+<br>【節目名稱】：金曲40我和你.2017-09-23
+<br>【節目頻道】：Radio2
+<br>【節目主持】：李志剛 | 夏妙然
+<br>【節目時間】：11:00 - 12:00
+<br>【檔案名稱】：Gold Songs You And Me.2017-09-23
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221359930
+<br>【MediaFire】：http://adf.ly/1oH8pa
+<br>【MediaFire】：http://www.linkbucks.com/A385r
+<br>【百度網盤】：http://adf.ly/1oH8sY
+<br>【百度網盤】：http://www.linkbucks.com/A385V
+<br>【百度密碼】：kmgk
+
 <br>【節目名稱】：五十年後.2017-09-23
 <br>【節目頻道】：Radio1
 <br>【節目主持】：葉國華
@@ -61,12 +74,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：World Discovery.2017-09-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221341879
+<br>【MediaFire】：http://adf.ly/1oH8qL
+<br>【MediaFire】：http://www.linkbucks.com/A385m
+<br>【百度網盤】：http://adf.ly/1oH8tB
+<br>【百度網盤】：http://www.linkbucks.com/A385S
+<br>【百度密碼】：a286
 
 <br>【節目名稱】：波樂無窮.2017-09-23
 <br>【節目頻道】：Radio1
@@ -74,12 +87,12 @@
 <br>【節目時間】：18:20 - 19:00
 <br>【檔案名稱】：BallRocks.2017-09-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221340745
+<br>【MediaFire】：http://adf.ly/1oH8rB
+<br>【MediaFire】：http://www.linkbucks.com/A385g
+<br>【百度網盤】：http://adf.ly/1oH8uC
+<br>【百度網盤】：http://www.linkbucks.com/A385G
+<br>【百度密碼】：5873
 
 <br>【節目名稱】：十項全能.2017-09-23
 <br>【節目頻道】：Radio1
@@ -87,12 +100,12 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Decathlon.2017-09-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221341334
+<br>【MediaFire】：http://adf.ly/1oH8rp
+<br>【MediaFire】：http://www.linkbucks.com/A385X
+<br>【百度網盤】：http://adf.ly/1oH8v2
+<br>【百度網盤】：http://www.linkbucks.com/A3846
+<br>【百度密碼】：7934
 
 <br>【節目名稱】：古今風雲人物.2017-09-23
 <br>【節目頻道】：Radio1
