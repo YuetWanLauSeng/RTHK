@@ -113,12 +113,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：People.2017-09-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221361882
+<br>【MediaFire】：http://adf.ly/1oHdyn
+<br>【MediaFire】：http://www.linkbucks.com/A4Dho
+<br>【百度網盤】：http://adf.ly/1oHdhK
+<br>【百度網盤】：http://www.linkbucks.com/A4DkF
+<br>【百度密碼】：n7hu
 
 <br>【節目名稱】：尋找繆思.2017-09-23
 <br>【節目頻道】：Radio2
@@ -126,12 +126,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：Searching For The Muses.2017-09-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221361909
+<br>【MediaFire】：http://adf.ly/1oHdyS
+<br>【MediaFire】：http://www.linkbucks.com/A4Dhq
+<br>【百度網盤】：http://adf.ly/1oHdiK
+<br>【百度網盤】：http://www.linkbucks.com/A4Dj4
+<br>【百度密碼】：mktm
 
 <br>【節目名稱】：電影兩面睇.2017-09-23
 <br>【節目頻道】：Radio1
@@ -139,12 +139,12 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Movie World.2017-09-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221361856
+<br>【MediaFire】：http://adf.ly/1oHdyB
+<br>【MediaFire】：http://www.linkbucks.com/A4Dhr
+<br>【百度網盤】：http://adf.ly/1oHdgq
+<br>【百度網盤】：http://www.linkbucks.com/A4DkK
+<br>【百度密碼】：ni8e
 
 <br>【節目名稱】：有種回憶.2017-09-23
 <br>【節目頻道】：Radio1
@@ -152,9 +152,9 @@
 <br>【節目時間】：22:20 - 24:00
 <br>【檔案名稱】：All About Memories.2017-09-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221485772
+<br>【MediaFire】：http://adf.ly/1oHdwQ
+<br>【MediaFire】：http://www.linkbucks.com/A4DiF
+<br>【百度網盤】：http://adf.ly/1oHdkk
+<br>【百度網盤】：http://www.linkbucks.com/A4Djm
+<br>【百度密碼】：nz5q
