@@ -37,12 +37,12 @@
 <br>【節目時間】：14:00 - 16:00
 <br>【檔案名稱】：Lassies and Nerds.2017-09-24
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221614584
+<br>【MediaFire】：http://adf.ly/1oHrlU
+<br>【MediaFire】：http://www.linkbucks.com/A4LH6
+<br>【百度網盤】：http://adf.ly/1oHrmd
+<br>【百度網盤】：http://www.linkbucks.com/A4LH1
+<br>【百度密碼】：8itp
 
 <br>【節目名稱】：粵語長片重出江湖.2017-09-24
 <br>【節目頻道】：Radio1
@@ -50,12 +50,12 @@
 <br>【節目時間】：16:00 - 17:00
 <br>【檔案名稱】：Cantonese Film.2017-09-24
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221614308
+<br>【MediaFire】：http://adf.ly/1oHrlu
+<br>【MediaFire】：http://www.linkbucks.com/A4LH2
+<br>【百度網盤】：http://adf.ly/1oHrnJ
+<br>【百度網盤】：http://www.linkbucks.com/A4LHh
+<br>【百度密碼】：nrc8
 
 <br>【節目名稱】：大學堂.2017-09-24
 <br>【節目頻道】：Radio1
