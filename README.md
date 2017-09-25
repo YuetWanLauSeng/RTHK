@@ -108,18 +108,18 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-09-25
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221786133
+<br>【MediaFire】：http://adf.ly/1oIdtb
+<br>【MediaFire】：http://www.linkbucks.com/A4S1t
+<br>【百度網盤】：http://adf.ly/1oIdsH
+<br>【百度網盤】：http://www.linkbucks.com/A4S2L
+<br>【百度密碼】：2hnh
 
 <br>【節目名稱】：講東講西.2017-09-25
 <br>【節目頻道】：Radio1
 <br>【節目日期】：2017-09-25
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：劉天賜 | 馬鼎盛 | 馬恩賜
+<br>【節目話題】：電影戰狼2的大背景
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-09-25
 <br>【節目版本】：未剪輯版
