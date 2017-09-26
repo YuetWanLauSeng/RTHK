@@ -66,12 +66,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：Four for Classics.2017-09-26
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221889346
+<br>【MediaFire】：http://quainator.com/tPL
+<br>【MediaFire】：http://www.linkbucks.com/A4plC
+<br>【百度網盤】：http://quainator.com/tHj
+<br>【百度網盤】：http://www.linkbucks.com/A4pnT
+<br>【百度密碼】：kcp6
 
 <br>【節目名稱】：Gimme 5.2017-09-26
 <br>【節目頻道】：Radio2
@@ -80,12 +80,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-09-26
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221889376
+<br>【MediaFire】：http://quainator.com/tbV
+<br>【MediaFire】：http://www.linkbucks.com/A4pihs
+<br>【百度網盤】：http://quainator.com/tFK
+<br>【百度網盤】：http://www.linkbucks.com/A4pnY
+<br>【百度密碼】：j4nu
 
 <br>【節目名稱】：恬淡情懷.2017-09-26
 <br>【節目頻道】：Radio1
@@ -94,12 +94,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-09-26
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221889550
+<br>【MediaFire】：http://quainator.com/tJ4
+<br>【MediaFire】：http://www.linkbucks.com/A4pl1
+<br>【百度網盤】：http://quainator.com/tAV
+<br>【百度網盤】：http://www.linkbucks.com/A4poU
+<br>【百度密碼】：jtff
 
 <br>【節目名稱】：音樂情人.2017-09-26
 <br>【節目頻道】：Radio1
