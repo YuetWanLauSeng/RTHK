@@ -38,12 +38,12 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Made In HK.2017-09-27
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222062465
+<br>【MediaFire】：http://quainator.com/2dPF
+<br>【MediaFire】：http://www.linkbucks.com/A4cWp
+<br>【百度網盤】：http://quainator.com/2dKw
+<br>【百度網盤】：http://www.linkbucks.com/A4cZy
+<br>【百度密碼】：i9nf
 
 <br>【節目名稱】：守下留情.2017-09-27
 <br>【節目頻道】：Radio2
@@ -52,12 +52,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-09-27
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222062528
+<br>【MediaFire】：http://quainator.com/2dUh
+<br>【MediaFire】：http://www.linkbucks.com/A4cUZ
+<br>【百度網盤】：http://quainator.com/2dMF
+<br>【百度網盤】：http://www.linkbucks.com/A4cYs
+<br>【百度密碼】：6pkg
 
 <br>【節目名稱】：Four for Classics 四時行樂.2017-09-27
 <br>【節目頻道】：Radio4
@@ -66,12 +66,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：Four for Classics.2017-09-27
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222062323
+<br>【MediaFire】：http://quainator.com/2dNg
+<br>【MediaFire】：http://www.linkbucks.com/A4cXd
+<br>【百度網盤】：http://quainator.com/2dIL
+<br>【百度網盤】：http://www.linkbucks.com/A4caW
+<br>【百度密碼】：tnyr
 
 <br>【節目名稱】：Gimme 5.2017-09-27
 <br>【節目頻道】：Radio2
@@ -118,8 +118,8 @@
 <br>【節目名稱】：講東講西.2017-09-27
 <br>【節目頻道】：Radio1
 <br>【節目日期】：2017-09-27
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：劉天賜 | 文潔華 | 盧傑雄
+<br>【節目話題】：讀壞書
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-09-27
 <br>【節目版本】：未剪輯版
