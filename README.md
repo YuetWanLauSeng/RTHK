@@ -24,12 +24,12 @@
 <br>【節目時間】：10:00 - 13:00
 <br>【檔案名稱】：Crazy And Happy.2017-09-28
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222171631
+<br>【MediaFire】：http://quainator.com/3xSs
+<br>【MediaFire】：http://www.linkbucks.com/A4UOY
+<br>【百度網盤】：http://quainator.com/3xR8
+<br>【百度網盤】：http://www.linkbucks.com/A4UOw
+<br>【百度密碼】：yta5
 
 <br>【節目名稱】：Made in Hong Kong 李志剛.2017-09-28
 <br>【節目頻道】：香港電台.Radio2
@@ -118,8 +118,8 @@
 <br>【節目名稱】：講東講西.2017-09-28
 <br>【節目頻道】：香港電台.Radio1
 <br>【節目日期】：2017-09-28
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：劉天賜 | 鄧達智 | 李健雄
+<br>【節目話題】：歐洲反遊客浪潮
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-09-28
 <br>【節目版本】：未剪輯版
