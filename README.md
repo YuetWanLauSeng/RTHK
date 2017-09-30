@@ -100,12 +100,12 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Decathlon.2017-09-30
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222531360
+<br>【MediaFire】：http://quainator.com/7Z7m
+<br>【MediaFire】：http://www.linkbucks.com/A4wyE
+<br>【百度網盤】：http://quainator.com/7ZIE
+<br>【百度網盤】：http://www.linkbucks.com/A4wrV
+<br>【百度密碼】：zntq
 
 <br>【節目名稱】：古今風雲人物.2017-09-30
 <br>【節目頻道】：香港電台.第一台
@@ -113,12 +113,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：People.2017-09-30
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222531478
+<br>【MediaFire】：http://quainator.com/7ZAw
+<br>【MediaFire】：http://www.linkbucks.com/A4wwk
+<br>【百度網盤】：http://quainator.com/7ZE4
+<br>【百度網盤】：http://www.linkbucks.com/A4wuZ
+<br>【百度密碼】：3ffv
 
 <br>【節目名稱】：尋找繆思.2017-09-30
 <br>【節目頻道】：香港電台.第二台
@@ -126,12 +126,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：Searching For The Muses.2017-09-30
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222531522
+<br>【MediaFire】：http://quainator.com/7Z9E
+<br>【MediaFire】：http://www.linkbucks.com/A4wxT
+<br>【百度網盤】：http://quainator.com/7ZCQ
+<br>【百度網盤】：http://www.linkbucks.com/A4wvJ
+<br>【百度密碼】：9ifc
 
 <br>【節目名稱】：電影兩面睇.2017-09-30
 <br>【節目頻道】：香港電台.第一台
@@ -139,12 +139,12 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Movie World.2017-09-30
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222531411
+<br>【MediaFire】：http://quainator.com/7Z6I
+<br>【MediaFire】：http://www.linkbucks.com/A4wyS
+<br>【百度網盤】：http://quainator.com/7ZFm
+<br>【百度網盤】：http://www.linkbucks.com/A4wsq
+<br>【百度密碼】：68z7
 
 <br>【節目名稱】：有種回憶.2017-09-30
 <br>【節目頻道】：香港電台.第一台
