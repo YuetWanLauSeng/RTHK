@@ -48,12 +48,12 @@
 <br>【節目時間】：11:00 - 12:00
 <br>【檔案名稱】：Gold Songs You And Me.2017-09-30
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222525132
+<br>【MediaFire】：http://quainator.com/7Nlx
+<br>【MediaFire】：http://www.linkbucks.com/A40TO
+<br>【百度網盤】：http://quainator.com/7O0Z
+<br>【百度網盤】：http://www.linkbucks.com/A40PR
+<br>【百度密碼】：utqf
 
 <br>【節目名稱】：五十年後.2017-09-30
 <br>【節目頻道】：香港電台.第一台
@@ -61,12 +61,12 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：50 Years After.2017-09-30
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222524976
+<br>【MediaFire】：http://quainator.com/7NjJ
+<br>【MediaFire】：http://www.linkbucks.com/A40Tk
+<br>【百度網盤】：http://quainator.com/7O8N
+<br>【百度網盤】：http://www.linkbucks.com/A40GM
+<br>【百度密碼】：9a4q
 
 <br>【節目名稱】：旅遊樂園.2017-09-30
 <br>【節目頻道】：香港電台.第一台
@@ -74,12 +74,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：World Discovery.2017-09-30
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222525224
+<br>【MediaFire】：http://quainator.com/7Nou
+<br>【MediaFire】：http://www.linkbucks.com/A40So
+<br>【百度網盤】：http://quainator.com/7Ntw
+<br>【百度網盤】：http://www.linkbucks.com/A40Rc
+<br>【百度密碼】：iw18
 
 <br>【節目名稱】：波樂無窮.2017-09-30
 <br>【節目頻道】：香港電台.第一台
@@ -87,12 +87,12 @@
 <br>【節目時間】：18:20 - 19:00
 <br>【檔案名稱】：BallRocks.2017-09-30
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222525039
+<br>【MediaFire】：http://quainator.com/7Nh0
+<br>【MediaFire】：http://www.linkbucks.com/A40Tz
+<br>【百度網盤】：http://quainator.com/7O4w
+<br>【百度網盤】：http://www.linkbucks.com/A40HW
+<br>【百度密碼】：mfga
 
 <br>【節目名稱】：十項全能.2017-09-30
 <br>【節目頻道】：香港電台.第一台
