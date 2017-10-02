@@ -94,12 +94,12 @@
 <BR>【節目時間】：20:00 - 21:00
 <BR>【檔案名稱】：Subtle Sensuality.2017-10-02
 <BR>【節目版本】：未剪輯版
-<BR>【城通網盤】：
-<BR>【MediaFire】：
-<BR>【MediaFire】：
-<BR>【百度網盤】：
-<BR>【百度網盤】：
-<BR>【百度密碼】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222755121
+<BR>【MediaFire】：http://quamiller.com/15rD
+<BR>【MediaFire】：http://www.linkbucks.com/A5M9g
+<BR>【百度網盤】：http://quamiller.com/15Bs
+<BR>【百度網盤】：http://www.linkbucks.com/A5NPl
+<BR>【百度密碼】：3xu3
 
 <BR>【節目名稱】：音樂情人.2017-10-02
 <BR>【節目頻道】：香港電台.第一台
@@ -108,12 +108,12 @@
 <BR>【節目時間】：21:00 - 22:00
 <BR>【檔案名稱】：Music Lover.2017-10-02
 <BR>【節目版本】：未剪輯版
-<BR>【城通網盤】：
-<BR>【MediaFire】：
-<BR>【MediaFire】：
-<BR>【百度網盤】：
-<BR>【百度網盤】：
-<BR>【百度密碼】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222757223
+<BR>【MediaFire】：http://quamiller.com/17c5
+<BR>【MediaFire】：http://www.linkbucks.com/A5LvZ
+<BR>【百度網盤】：http://quamiller.com/17Vc
+<BR>【百度網盤】：http://www.linkbucks.com/A5Lxk
+<BR>【百度密碼】：69xn
 
 <BR>【節目名稱】：講東講西.2017-10-02
 <BR>【節目頻道】：香港電台.第一台
