@@ -80,12 +80,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-10-03
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222872014
+<br>【MediaFire】：http://quamiller.com/2lCo
+<br>【MediaFire】：http://www.linkbucks.com/A49BU
+<br>【百度網盤】：http://quamiller.com/2lIQ
+<br>【百度網盤】：http://www.linkbucks.com/A49A2
+<br>【百度密碼】：d2gj
 
 <br>【節目名稱】：恬淡情懷.2017-10-03
 <br>【節目頻道】：香港電台.第一台
