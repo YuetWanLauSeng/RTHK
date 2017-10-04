@@ -38,12 +38,12 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Made In HK.2017-10-04
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222931749
+<br>【MediaFire】：http://quamiller.com/4frz
+<br>【MediaFire】：http://www.linkbucks.com/A5IKH
+<br>【百度網盤】：http://quamiller.com/4fRL
+<br>【百度網盤】：http://www.linkbucks.com/A5IKz
+<br>【百度密碼】：s221
 
 <br>【節目名稱】：守下留情.2017-10-04
 <br>【節目頻道】：香港電台.第二台
@@ -52,12 +52,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-10-04
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222931797
+<br>【MediaFire】：http://quamiller.com/4fp8
+<br>【MediaFire】：http://www.linkbucks.com/A5IKJ
+<br>【百度網盤】：http://quamiller.com/4fOh
+<br>【百度網盤】：http://www.linkbucks.com/A5ILE
+<br>【百度密碼】：4bhf
 
 <br>【節目名稱】：Four for Classics 四時行樂.2017-10-04
 <br>【節目頻道】：香港電台.第四台
@@ -66,12 +66,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：Four for Classics.2017-10-04
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222931660
+<br>【MediaFire】：http://quamiller.com/4fuX
+<br>【MediaFire】：http://www.linkbucks.com/A5IKE
+<br>【百度網盤】：http://quamiller.com/4fa0
+<br>【百度網盤】：http://www.linkbucks.com/A5IKl
+<br>【百度密碼】：227x
 
 <br>【節目名稱】：Gimme 5.2017-10-04
 <br>【節目頻道】：香港電台.第二台
@@ -118,8 +118,8 @@
 <br>【節目名稱】：講東講西.2017-10-04
 <br>【節目頻道】：香港電台.第一台
 <br>【節目日期】：2017-10-04
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：劉天賜 | 馬恩賜 | 張燦輝
+<br>【節目話題】：團圓
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-10-04
 <br>【節目版本】：未剪輯版
