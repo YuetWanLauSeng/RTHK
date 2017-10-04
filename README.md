@@ -80,12 +80,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-10-04
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222942735
+<br>【MediaFire】：http://quamiller.com/4xXq
+<br>【MediaFire】：http://www.linkbucks.com/A5Gh7
+<br>【百度網盤】：http://quamiller.com/4xfY
+<br>【百度網盤】：http://www.linkbucks.com/A5GhW
+<br>【百度密碼】：8civ
 
 <br>【節目名稱】：恬淡情懷.2017-10-04
 <br>【節目頻道】：香港電台.第一台
@@ -94,12 +94,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-10-04
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222942803
+<br>【MediaFire】：http://quamiller.com/4xZq
+<br>【MediaFire】：http://www.linkbucks.com/A5Ghx
+<br>【百度網盤】：http://quamiller.com/4xbt
+<br>【百度網盤】：http://www.linkbucks.com/A5Ghk
+<br>【百度密碼】：2ehg
 
 <br>【節目名稱】：音樂情人.2017-10-04
 <br>【節目頻道】：香港電台.第一台
@@ -108,12 +108,12 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-10-04
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222942753
+<br>【MediaFire】：http://quamiller.com/4xYi
+<br>【MediaFire】：http://www.linkbucks.com/A5Gh4
+<br>【百度網盤】：http://quamiller.com/4xdG
+<br>【百度網盤】：http://www.linkbucks.com/A5Ghb
+<br>【百度密碼】：butk
 
 <br>【節目名稱】：講東講西.2017-10-04
 <br>【節目頻道】：香港電台.第一台
