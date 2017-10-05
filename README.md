@@ -24,12 +24,12 @@
 <br>【節目時間】：10:00 - 13:00
 <br>【檔案名稱】：Crazy And Happy.2017-10-05
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222970249
+<br>【MediaFire】：http://quamiller.com/646P
+<br>【MediaFire】：http://www.linkbucks.com/A5Nd9
+<br>【百度網盤】：http://quamiller.com/648A
+<br>【百度網盤】：http://www.linkbucks.com/A5Ndn
+<br>【百度密碼】：n7sr
 
 <br>【節目名稱】：Made in Hong Kong 李志剛.2017-10-05
 <br>【節目頻道】：香港電台.第二台
