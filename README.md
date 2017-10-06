@@ -63,15 +63,15 @@
 <br>【節目頻道】：香港電台.第四台
 <br>【節目日期】：2017-10-06
 <br>【節目主持】：凌崎偵
-<br>【節目時間】：16:00 - 18:00
+<br>【節目時間】：16:00 - 17:30
 <br>【檔案名稱】：Four for Classics.2017-10-06
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223069981
+<br>【MediaFire】：http://quamiller.com/8AHF
+<br>【MediaFire】：http://www.linkbucks.com/A5vHq
+<br>【百度網盤】：http://quamiller.com/8AMx
+<br>【百度網盤】：http://www.linkbucks.com/A5vFm
+<br>【百度密碼】：ye5c
 
 <br>【節目名稱】：Gimme 5.2017-10-06
 <br>【節目頻道】：香港電台.第二台
@@ -80,12 +80,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-10-06
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223070020
+<br>【MediaFire】：http://quamiller.com/8AGF
+<br>【MediaFire】：http://www.linkbucks.com/A5vH7
+<br>【百度網盤】：http://quamiller.com/8AKl
+<br>【百度網盤】：http://www.linkbucks.com/A5vGM
+<br>【百度密碼】：3ivr
 
 <br>【節目名稱】：恬淡情懷.2017-10-06
 <br>【節目頻道】：香港電台.第一台
@@ -94,12 +94,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-10-06
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223070047
+<br>【MediaFire】：http://quamiller.com/8AIC
+<br>【MediaFire】：http://www.linkbucks.com/A5vHh
+<br>【百度網盤】：http://quamiller.com/8AJD
+<br>【百度網盤】：http://www.linkbucks.com/A5vGg
+<br>【百度密碼】：thxf
 
 <br>【節目名稱】：音樂情人.2017-10-06
 <br>【節目頻道】：香港電台.第一台
