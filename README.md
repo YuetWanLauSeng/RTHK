@@ -123,9 +123,9 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-10-05
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223042317
+<br>【MediaFire】：http://quamiller.com/7Uti
+<br>【MediaFire】：http://www.linkbucks.com/A5m8s
+<br>【百度網盤】：http://quamiller.com/7Umj
+<br>【百度網盤】：http://www.linkbucks.com/A5nA3
+<br>【百度密碼】：r5v9
