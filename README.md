@@ -72,12 +72,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：World Discovery.2017-10-07
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223240406
+<br>【MediaFire】：http://quamiller.com/9hDd
+<br>【MediaFire】：http://www.linkbucks.com/A5VZO
+<br>【百度網盤】：http://quamiller.com/9h0W
+<br>【百度網盤】：http://www.linkbucks.com/A5VUg
+<br>【百度密碼】：ircs
 
 <br>【節目名稱】：波樂無窮.2017-10-07
 <br>【節目頻道】：香港電台.第一台
@@ -85,12 +85,12 @@
 <br>【節目時間】：18:20 - 19:00
 <br>【檔案名稱】：BallRocks.2017-10-07
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223239474
+<br>【MediaFire】：http://quamiller.com/9hAh
+<br>【MediaFire】：http://www.linkbucks.com/A5VYn
+<br>【百度網盤】：http://quamiller.com/9h9C
+<br>【百度網盤】：http://www.linkbucks.com/A5VTy
+<br>【百度密碼】：m4f3
 
 <br>【節目名稱】：十項全能.2017-10-07
 <br>【節目頻道】：香港電台.第一台
@@ -98,12 +98,12 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Decathlon.2017-10-07
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223239856
+<br>【MediaFire】：http://quamiller.com/9hBi
+<br>【MediaFire】：http://www.linkbucks.com/A5VYk
+<br>【百度網盤】：http://quamiller.com/9h6m
+<br>【百度網盤】：http://www.linkbucks.com/A5VUE
+<br>【百度密碼】：9f4q
 
 <br>【節目名稱】：古今風雲人物.2017-10-07
 <br>【節目頻道】：香港電台.第一台
