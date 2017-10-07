@@ -111,12 +111,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：People.2017-10-07
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223249625
+<br>【MediaFire】：http://quamiller.com/9ozC
+<br>【MediaFire】：http://www.linkbucks.com/A5UjS
+<br>【百度網盤】：http://quamiller.com/9p9Y
+<br>【百度網盤】：http://www.linkbucks.com/A5UkZ
+<br>【百度密碼】：qbfw
 
 <br>【節目名稱】：尋找繆思.2017-10-07
 <br>【節目頻道】：香港電台.第二台
@@ -124,12 +124,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：Searching For The Muses.2017-10-07
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223249635
+<br>【MediaFire】：http://quamiller.com/9oyT
+<br>【MediaFire】：http://www.linkbucks.com/A5UjN
+<br>【百度網盤】：http://quamiller.com/9p8D
+<br>【百度網盤】：http://www.linkbucks.com/A5UkJ
+<br>【百度密碼】：zf41
 
 <br>【節目名稱】：電影兩面睇.2017-10-07
 <br>【節目頻道】：香港電台.第一台
@@ -137,12 +137,12 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Movie World.2017-10-07
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223249611
+<br>【MediaFire】：http://quamiller.com/9oxc
+<br>【MediaFire】：http://www.linkbucks.com/A5UjJ
+<br>【百度網盤】：http://quamiller.com/9pAb
+<br>【百度網盤】：http://www.linkbucks.com/A5Ukf
+<br>【百度密碼】：2xhd
 
 <br>【節目名稱】：有種回憶.2017-10-07
 <br>【節目頻道】：香港電台.第一台
