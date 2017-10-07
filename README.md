@@ -1,8 +1,6 @@
 ### 歡迎瀏覽本人的電台論壇
 ### http://www.yuetwanlauseng.com
 
-<br>【更多節目請瀏覽】：https://github.com/YuetWanLauSeng/RTHK
-
 <br>【節目名稱】：開心日報.2017-10-06
 <br>【節目頻道】：香港電台.第一台
 <br>【節目日期】：2017-10-06
@@ -123,9 +121,9 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-10-06
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223166549
+<br>【MediaFire】：http://quamiller.com/93iz
+<br>【MediaFire】：http://www.linkbucks.com/A5h6f
+<br>【百度網盤】：http://quamiller.com/93dp
+<br>【百度網盤】：http://www.linkbucks.com/A5iDe
+<br>【百度密碼】：tzgb
