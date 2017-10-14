@@ -116,14 +116,14 @@
 <br>【節目名稱】：講東講西.2017-10-13
 <br>【節目頻道】：香港電台.第一台
 <br>【節目日期】：2017-10-13
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：梁敬國 | 胡世傑 | 黃司禮
+<br>【節目話題】：KOL是如何練成的
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-10-13
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224005545
+<br>【MediaFire】：http://yobuilder.com/8dfV
+<br>【MediaFire】：http://www.linkbucks.com/A6GbG
+<br>【百度網盤】：http://yobuilder.com/8dpS
+<br>【百度網盤】：http://www.linkbucks.com/A6GZq
+<br>【百度密碼】：kege
