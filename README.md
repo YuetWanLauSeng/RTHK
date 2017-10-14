@@ -72,12 +72,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：World Discovery.2017-10-14
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224037844
+<br>【MediaFire】：http://yobuilder.com/9JNo
+<br>【MediaFire】：http://www.linkbucks.com/A6OK2
+<br>【百度網盤】：http://yobuilder.com/9JPM
+<br>【百度網盤】：http://www.linkbucks.com/A6OKx
+<br>【百度密碼】：tpwg
 
 <br>【節目名稱】：波樂無窮.2017-10-14
 <br>【節目頻道】：香港電台.第一台
@@ -85,12 +85,12 @@
 <br>【節目時間】：18:20 - 19:00
 <br>【檔案名稱】：BallRocks.2017-10-14
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224037630
+<br>【MediaFire】：http://yobuilder.com/9JMX
+<br>【MediaFire】：http://www.linkbucks.com/A6OK3
+<br>【百度網盤】：http://yobuilder.com/9JQU
+<br>【百度網盤】：http://www.linkbucks.com/A6OKj
+<br>【百度密碼】：kk92
 
 <br>【節目名稱】：十項全能.2017-10-14
 <br>【節目頻道】：香港電台.第一台
@@ -98,12 +98,12 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Decathlon.2017-10-14
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224037702
+<br>【MediaFire】：http://yobuilder.com/9JKA
+<br>【MediaFire】：http://www.linkbucks.com/A6OK5
+<br>【百度網盤】：http://yobuilder.com/9JRp
+<br>【百度網盤】：http://www.linkbucks.com/A6OKW
+<br>【百度密碼】：kmwe
 
 <br>【節目名稱】：古今風雲人物.2017-10-14
 <br>【節目頻道】：香港電台.第一台
@@ -111,12 +111,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：People.2017-10-14
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224037786
+<br>【MediaFire】：http://yobuilder.com/9JJV
+<br>【MediaFire】：http://www.linkbucks.com/A6OK9
+<br>【百度網盤】：http://yobuilder.com/9JTp
+<br>【百度網盤】：http://www.linkbucks.com/A6OKP
+<br>【百度密碼】：d2pr
 
 <br>【節目名稱】：尋找繆思.2017-10-14
 <br>【節目頻道】：香港電台.第二台
@@ -124,12 +124,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：Searching For The Muses.2017-10-14
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224037802
+<br>【MediaFire】：http://yobuilder.com/9JIl
+<br>【MediaFire】：http://www.linkbucks.com/A6OLE
+<br>【百度網盤】：http://yobuilder.com/9JYM
+<br>【百度網盤】：http://www.linkbucks.com/A6OJ3
+<br>【百度密碼】：d2gu
 
 <br>【節目名稱】：電影兩面睇.2017-10-14
 <br>【節目頻道】：香港電台.第一台
@@ -137,12 +137,12 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Movie World.2017-10-14
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224037771
+<br>【MediaFire】：http://yobuilder.com/9JHx
+<br>【MediaFire】：http://www.linkbucks.com/A6OLG
+<br>【百度網盤】：http://yobuilder.com/9Jao
+<br>【百度網盤】：http://www.linkbucks.com/A6OJx
+<br>【百度密碼】：tfu6
 
 <br>【節目名稱】：有種回憶.2017-10-14
 <br>【節目頻道】：香港電台.第一台
