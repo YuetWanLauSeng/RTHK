@@ -150,9 +150,9 @@
 <br>【節目時間】：22:20 - 24:00
 <br>【檔案名稱】：All About Memories.2017-10-14
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224062761
+<br>【MediaFire】：http://yobuilder.com/ABGT
+<br>【MediaFire】：http://www.linkbucks.com/A6P2j
+<br>【百度網盤】：http://yobuilder.com/ABH0
+<br>【百度網盤】：http://www.linkbucks.com/A6P2Y
+<br>【百度密碼】：kfuh
