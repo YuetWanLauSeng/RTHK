@@ -28,12 +28,12 @@
 <br>【節目時間】：14:00 - 16:00
 <br>【檔案名稱】：Lassies and Nerds.2017-10-15
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224090280
+<br>【MediaFire】：http://yobuilder.com/Anru
+<br>【MediaFire】：http://www.linkbucks.com/A6WHp
+<br>【百度網盤】：http://yobuilder.com/Anlx
+<br>【百度網盤】：http://www.linkbucks.com/A6WKA
+<br>【百度密碼】：nrhh
 
 <br>【節目名稱】：粵語長片重出江湖.2017-10-15
 <br>【節目頻道】：香港電台.第一台
@@ -41,12 +41,7 @@
 <br>【節目時間】：16:00 - 17:00
 <br>【檔案名稱】：Cantonese Film.2017-10-15
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【節目暫停】：因八號風球節目暫停
 
 <br>【節目名稱】：大學堂.2017-10-15
 <br>【節目頻道】：香港電台.第一台
@@ -54,12 +49,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：University Knowledge Platform.2017-10-15
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224090353
+<br>【MediaFire】：http://yobuilder.com/AnpA
+<br>【MediaFire】：http://www.linkbucks.com/A6WIh
+<br>【百度網盤】：http://yobuilder.com/Angr
+<br>【百度網盤】：http://www.linkbucks.com/A6WOI
+<br>【百度密碼】：q568
 
 <br>【節目名稱】：2000靚歌再重聚.2017-10-15
 <br>【節目頻道】：香港電台.第二台
