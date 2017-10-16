@@ -1,70 +1,129 @@
 ### 歡迎瀏覽本人的電台論壇
 ### http://www.yuetwanlauseng.com
 
-<br>【節目名稱】：舊日的足跡.2017-10-15
+<br>【節目名稱】：開心日報.2017-10-16
 <br>【節目頻道】：香港電台.第一台
-<br>【節目主持】：車淑梅
-<br>【節目嘉賓】：王祖藍
-<br>【節目時間】：08:00 - 10:00
-<br>【檔案名稱】：HK Footpath.2017-10-15
+<br>【節目日期】：2017-10-16
+<br>【節目主持】：何守信 | 陳淑蘭 | 林超榮 | 丹尼爾 | 杜雯惠
+<br>【節目時間】：10:20 - 12:00
+<br>【檔案名稱】：Happy Daily.2017-10-16
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224063494
-<br>【MediaFire】：http://yobuilder.com/ADKw
-<br>【MediaFire】：http://www.linkbucks.com/CgoaX
-<br>【百度網盤】：http://yobuilder.com/ADLq
-<br>【百度網盤】：http://www.linkbucks.com/Cgm50
-<br>【百度密碼】：cat1
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224144552
+<br>【MediaFire】：http://skamason.com/13Bw
+<br>【MediaFire】：http://www.linkbucks.com/A6uwF
+<br>【百度網盤】：http://skamason.com/13Eg
+<br>【百度網盤】：http://www.linkbucks.com/A6uv7
+<br>【百度密碼】：hf8a
 
-<br>【節目名稱】：講東講西.2017-10-15
+<br>【節目名稱】：瘋Show快活人.2017-10-16
 <br>【節目頻道】：香港電台.第二台
-<br>【節目時間】：10:00 - 12:00
-<br>【檔案名稱】：Free As The Wind.2017-10-15
+<br>【節目日期】：2017-10-16
+<br>【節目主持】：貴花田 | 曾志豪 | 王耀祖 | 斌仔 | 黃天頤 | 波盛
+<br>【節目時間】：10:00 - 13:00
+<br>【檔案名稱】：Crazy And Happy.2017-10-16
 <br>【節目版本】：未剪輯版
-<br>【節目暫停】：因八號風球節目暫停
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224144504
+<br>【MediaFire】：http://skamason.com/133S
+<br>【MediaFire】：http://www.linkbucks.com/A6uyH
+<br>【百度網盤】：http://skamason.com/13Kf
+<br>【百度網盤】：http://www.linkbucks.com/A6uu3
+<br>【百度密碼】：jfqy
 
-<br>【節目名稱】：中女宅男殺很大.2017-10-15
+<br>【節目名稱】：Made in Hong Kong 李志剛.2017-10-16
 <br>【節目頻道】：香港電台.第二台
-<br>【節目主持】：彭晴 | 曾志豪
-<br>【節目時間】：14:00 - 16:00
-<br>【檔案名稱】：Lassies and Nerds.2017-10-15
+<br>【節目日期】：2017-10-16
+<br>【節目主持】：李志剛 | 超B
+<br>【節目時間】：13:00 - 15:00
+<br>【檔案名稱】：Made In HK.2017-10-16
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224090280
-<br>【MediaFire】：http://yobuilder.com/Anru
-<br>【MediaFire】：http://www.linkbucks.com/A6WHp
-<br>【百度網盤】：http://yobuilder.com/Anlx
-<br>【百度網盤】：http://www.linkbucks.com/A6WKA
-<br>【百度密碼】：nrhh
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224144614
+<br>【MediaFire】：http://skamason.com/130h
+<br>【MediaFire】：http://www.linkbucks.com/A6uyM
+<br>【百度網盤】：http://skamason.com/13Q1
+<br>【百度網盤】：http://www.linkbucks.com/A6ut4
+<br>【百度密碼】：bky9
 
-<br>【節目名稱】：粵語長片重出江湖.2017-10-15
+<br>【節目名稱】：守下留情.2017-10-16
+<br>【節目頻道】：香港電台.第二台
+<br>【節目日期】：2017-10-16
+<br>【節目主持】：劉偉恆 | 梁禮勤 | 阿一
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：SeeSaw.2017-10-16
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224158308
+<br>【MediaFire】：http://skamason.com/12xp
+<br>【MediaFire】：http://www.linkbucks.com/A6uyY
+<br>【百度網盤】：http://skamason.com/13SJ
+<br>【百度網盤】：http://www.linkbucks.com/A6upn
+<br>【百度密碼】：ttdr
+
+<br>【節目名稱】：Four for Classics 四時行樂.2017-10-16
+<br>【節目頻道】：香港電台.第四台
+<br>【節目日期】：2017-10-16
+<br>【節目主持】：凌崎偵
+<br>【節目時間】：16:00 - 18:00
+<br>【檔案名稱】：Four for Classics.2017-10-16
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224158025
+<br>【MediaFire】：http://skamason.com/12vr
+<br>【MediaFire】：http://www.linkbucks.com/A6uzC
+<br>【百度網盤】：http://skamason.com/13Ui
+<br>【百度網盤】：http://www.linkbucks.com/A6ulB
+<br>【百度密碼】：bgkd
+
+<br>【節目名稱】：Gimme 5.2017-10-16
+<br>【節目頻道】：香港電台.第二台
+<br>【節目日期】：2017-10-16
+<br>【節目主持】：梁德輝 | 黃天頤 | 波盛
+<br>【節目時間】：17:00 - 19:00
+<br>【檔案名稱】：Gimme 5.2017-10-16
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224158239
+<br>【MediaFire】：http://skamason.com/12ub
+<br>【MediaFire】：http://www.linkbucks.com/A6uza
+<br>【百度網盤】：http://skamason.com/13WI
+<br>【百度網盤】：http://www.linkbucks.com/A6uk2
+<br>【百度密碼】：jabq
+
+<br>【節目名稱】：恬淡情懷.2017-10-16
 <br>【節目頻道】：香港電台.第一台
-<br>【節目主持】：吳俊雄
-<br>【節目時間】：16:00 - 17:00
-<br>【檔案名稱】：Cantonese Film.2017-10-15
+<br>【節目日期】：2017-10-16
+<br>【節目主持】：鄧慧詩
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Subtle Sensuality.2017-10-16
 <br>【節目版本】：未剪輯版
-<br>【節目暫停】：因八號風球節目暫停
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：大學堂.2017-10-15
+<br>【節目名稱】：音樂情人.2017-10-16
 <br>【節目頻道】：香港電台.第一台
-<br>【節目主持】：趙善恩
-<br>【節目時間】：20:00 - 20:30
-<br>【檔案名稱】：University Knowledge Platform.2017-10-15
+<br>【節目日期】：2017-10-16
+<br>【節目主持】：鄭子誠
+<br>【節目時間】：21:00 - 22:00
+<br>【檔案名稱】：Music Lover.2017-10-16
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224090353
-<br>【MediaFire】：http://yobuilder.com/AnpA
-<br>【MediaFire】：http://www.linkbucks.com/A6WIh
-<br>【百度網盤】：http://yobuilder.com/Angr
-<br>【百度網盤】：http://www.linkbucks.com/A6WOI
-<br>【百度密碼】：q568
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：2000靚歌再重聚.2017-10-15
-<br>【節目頻道】：香港電台.第二台
-<br>【節目主持】：區瑞強
-<br>【節目時間】：21:00 - 24:00
-<br>【檔案名稱】：Reunion.2017-10-15
+<br>【節目名稱】：講東講西.2017-10-16
+<br>【節目頻道】：香港電台.第一台
+<br>【節目日期】：2017-10-16
+<br>【節目主持】：
+<br>【節目話題】：
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：Free As The Wind.2017-10-16
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224095980
-<br>【MediaFire】：http://skamason.com/RI7
-<br>【MediaFire】：http://www.linkbucks.com/A6j33
-<br>【百度網盤】：http://skamason.com/RGb
-<br>【百度網盤】：http://www.linkbucks.com/A6j39
-<br>【百度密碼】：4wxy
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
