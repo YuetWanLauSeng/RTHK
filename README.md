@@ -8,12 +8,12 @@
 <br>【節目時間】：10:20 - 12:00
 <br>【檔案名稱】：Happy Daily.2017-10-17
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224215016
-<br>【MediaFire】：http://skamason.com/2KUi
-<br>【MediaFire】：http://www.linkbucks.com/A6jHX
-<br>【百度網盤】：http://skamason.com/2KVa
-<br>【百度網盤】：http://www.linkbucks.com/A6jHD
-<br>【百度密碼】：yxyv
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224228197
+<br>【MediaFire】：http://skamason.com/2X5K
+<br>【MediaFire】：http://www.linkbucks.com/A6cbh
+<br>【百度網盤】：http://skamason.com/2XFJ
+<br>【百度網盤】：http://www.linkbucks.com/A6cYh
+<br>【百度密碼】：frya
 
 <br>【節目名稱】：瘋Show快活人.2017-10-17
 <br>【節目頻道】：香港電台.第二台
@@ -22,12 +22,12 @@
 <br>【節目時間】：10:00 - 13:00
 <br>【檔案名稱】：Crazy And Happy.2017-10-17
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224221948
-<br>【MediaFire】：http://skamason.com/2POw
-<br>【MediaFire】：http://www.linkbucks.com/A6g1y
-<br>【百度網盤】：http://skamason.com/2PQq
-<br>【百度網盤】：http://www.linkbucks.com/A6g1V
-<br>【百度密碼】：8y95
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224228135
+<br>【MediaFire】：http://skamason.com/2X7z
+<br>【MediaFire】：http://www.linkbucks.com/A6ca8
+<br>【百度網盤】：http://skamason.com/2XDi
+<br>【百度網盤】：http://www.linkbucks.com/A6cYp
+<br>【百度密碼】：9fma
 
 <br>【節目名稱】：Made in Hong Kong 李志剛.2017-10-17
 <br>【節目頻道】：香港電台.第二台
@@ -36,12 +36,12 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Made In HK.2017-10-17
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224228279
+<br>【MediaFire】：http://skamason.com/2X9r
+<br>【MediaFire】：http://www.linkbucks.com/A6caG
+<br>【百度網盤】：http://skamason.com/2XB5
+<br>【百度網盤】：http://www.linkbucks.com/A6cZc
+<br>【百度密碼】：7kvx
 
 <br>【節目名稱】：守下留情.2017-10-17
 <br>【節目頻道】：香港電台.第二台
