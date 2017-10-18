@@ -92,12 +92,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-10-17
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224289049
+<br>【MediaFire】：http://skamason.com/3gE6
+<br>【MediaFire】：http://www.linkbucks.com/A6YXk
+<br>【百度網盤】：http://skamason.com/3gI9
+<br>【百度網盤】：http://www.linkbucks.com/A6YW9
+<br>【百度密碼】：5shx
 
 <br>【節目名稱】：音樂情人.2017-10-17
 <br>【節目頻道】：香港電台.第一台
@@ -106,24 +106,24 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-10-17
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224288943
+<br>【MediaFire】：http://skamason.com/3gD9
+<br>【MediaFire】：http://www.linkbucks.com/A6YXl
+<br>【百度網盤】：http://skamason.com/3gGs
+<br>【百度網盤】：http://www.linkbucks.com/A6YXF
+<br>【百度密碼】：th97
 
 <br>【節目名稱】：講東講西.2017-10-17
 <br>【節目頻道】：香港電台.第一台
 <br>【節目日期】：2017-10-17
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：劉天賜 | 岑逸飛 | 王碧影
+<br>【節目話題】：水彩畫與粵劇
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-10-17
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224288754
+<br>【MediaFire】：http://skamason.com/3gCJ
+<br>【MediaFire】：http://www.linkbucks.com/A6YXp
+<br>【百度網盤】：http://skamason.com/3gFu
+<br>【百度網盤】：http://www.linkbucks.com/A6YXW
+<br>【百度密碼】：8m9j
