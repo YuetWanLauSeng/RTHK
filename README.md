@@ -1,129 +1,158 @@
 ### 歡迎瀏覽本人的電台論壇
 ### http://www.yuetwanlauseng.com
 
-<br>【節目名稱】：開心日報.2017-10-20
+<br>【節目名稱】：香港家書.2017-10-21
 <br>【節目頻道】：香港電台.第一台
-<br>【節目日期】：2017-10-20
-<br>【節目主持】：何守信 | 陳淑蘭 | 林超榮 | 丹尼爾 | 杜雯惠
-<br>【節目時間】：10:20 - 12:00
-<br>【檔案名稱】：Happy Daily.2017-10-20
+<br>【節目主持】：蕭洛汶 | 陳顥之
+<br>【節目時間】：09:00 - 09:20
+<br>【檔案名稱】：HK Letter.2017-10-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224822227
-<br>【MediaFire】：http://skamason.com/77gN
-<br>【MediaFire】：http://www.linkbucks.com/A67u3
-<br>【百度網盤】：http://skamason.com/77hM
-<br>【百度網盤】：http://www.linkbucks.com/A67u2
-<br>【百度密碼】：esm6
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225156318
+<br>【MediaFire】：http://skamason.com/8Y9D
+<br>【MediaFire】：http://www.linkbucks.com/A7A6R
+<br>【百度網盤】：http://skamason.com/8Y9x
+<br>【百度網盤】：http://www.linkbucks.com/A7A57
+<br>【百度密碼】：kwb8
 
-<br>【節目名稱】：瘋Show快活人.2017-10-20
+<br>【節目名稱】：好歌安哥.2017-10-21
+<br>【節目頻道】：香港電台.第五台
+<br>【節目主持】：周錦瑤
+<br>【節目時間】：08:00 - 10:00
+<br>【檔案名稱】：Big Brother Song.2017-10-21
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225156003
+<br>【MediaFire】：http://skamason.com/8Y8M
+<br>【MediaFire】：http://www.linkbucks.com/A7A6T
+<br>【百度網盤】：http://skamason.com/8YBg
+<br>【百度網盤】：http://www.linkbucks.com/A7A56
+<br>【百度密碼】：73v2
+
+<br>【節目名稱】：十萬八千里.2017-10-21
+<br>【節目頻道】：香港電台.第一台
+<br>【節目主持】：陸宇光 | 譚永暉
+<br>【節目時間】：11:00 - 12:00
+<br>【檔案名稱】：World In A Nutshell.2017-10-21
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225156424
+<br>【MediaFire】：http://skamason.com/8Y7h
+<br>【MediaFire】：http://www.linkbucks.com/A7A6U
+<br>【百度網盤】：http://skamason.com/8YD8
+<br>【百度網盤】：http://www.linkbucks.com/A7A54
+<br>【百度密碼】：ge31
+
+<br>【節目名稱】：金曲40我和你.2017-10-21
 <br>【節目頻道】：香港電台.第二台
-<br>【節目日期】：2017-10-20
-<br>【節目主持】：貴花田 | 曾志豪 | 王耀祖 | 斌仔 | 黃天頤 | 波盛
-<br>【節目時間】：10:00 - 13:00
-<br>【檔案名稱】：Crazy And Happy.2017-10-20
+<br>【節目主持】：李志剛 | 夏妙然
+<br>【節目時間】：11:00 - 12:00
+<br>【檔案名稱】：Gold Songs You And Me.2017-10-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://u10715768.ctfile.com/fs/10715768-224835628
-<br>【MediaFire】：http://skamason.com/7D7I
-<br>【MediaFire】：http://www.linkbucks.com/A66RG
-<br>【百度網盤】：http://skamason.com/7D9R
-<br>【百度網盤】：http://www.linkbucks.com/A66RB
-<br>【百度密碼】：4mix
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225156272
+<br>【MediaFire】：http://skamason.com/8Y74
+<br>【MediaFire】：http://www.linkbucks.com/A7A6f
+<br>【百度網盤】：http://skamason.com/8YDh
+<br>【百度網盤】：http://www.linkbucks.com/A7A5x
+<br>【百度密碼】：kgdp
 
-<br>【節目名稱】：Made in Hong Kong 李志剛.2017-10-20
-<br>【節目頻道】：香港電台.第二台
-<br>【節目日期】：2017-10-20
-<br>【節目主持】：李志剛 | 超B
-<br>【節目時間】：13:00 - 15:00
-<br>【檔案名稱】：Made In HK.2017-10-20
+<br>【節目名稱】：五十年後.2017-10-21
+<br>【節目頻道】：香港電台.第一台
+<br>【節目主持】：葉國華
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：50 Years After.2017-10-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225023032
-<br>【MediaFire】：http://skamason.com/7G3n
-<br>【MediaFire】：http://www.linkbucks.com/A65fJ
-<br>【百度網盤】：http://skamason.com/7G5V
-<br>【百度網盤】：http://www.linkbucks.com/A65e5
-<br>【百度密碼】：2qdy
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225236899
+<br>【MediaFire】：http://skamason.com/8hYJ
+<br>【MediaFire】：http://www.linkbucks.com/A7RSZ
+<br>【百度網盤】：http://skamason.com/8hhM
+<br>【百度網盤】：http://www.linkbucks.com/A7RQy
+<br>【百度密碼】：wybd
 
-<br>【節目名稱】：守下留情.2017-10-20
-<br>【節目頻道】：香港電台.第二台
-<br>【節目日期】：2017-10-20
-<br>【節目主持】：劉偉恆 | 梁禮勤 | 阿一
-<br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：SeeSaw.2017-10-20
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225034758
-<br>【MediaFire】：http://skamason.com/7jFY
-<br>【MediaFire】：http://www.linkbucks.com/A7LGn
-<br>【百度網盤】：http://skamason.com/7jH4
-<br>【百度網盤】：http://www.linkbucks.com/A7LF7
-<br>【百度密碼】：4qac
-
-<br>【節目名稱】：Four for Classics 四時行樂.2017-10-20
-<br>【節目頻道】：香港電台.第四台
-<br>【節目日期】：2017-10-20
-<br>【節目主持】：凌崎偵
+<br>【節目名稱】：旅遊樂園.2017-10-21
+<br>【節目頻道】：香港電台.第一台
+<br>【節目主持】：張建浩 | 劉蓮 | 區凱聲 | Zeno
 <br>【節目時間】：16:00 - 18:00
-<br>【檔案名稱】：Four for Classics.2017-10-20
+<br>【檔案名稱】：World Discovery.2017-10-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225077465
-<br>【MediaFire】：http://skamason.com/7jE7
-<br>【MediaFire】：http://www.linkbucks.com/A7LGu
-<br>【百度網盤】：http://skamason.com/7jIZ
-<br>【百度網盤】：http://www.linkbucks.com/A7LFp
-<br>【百度密碼】：qb1t
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：Gimme 5.2017-10-20
+<br>【節目名稱】：波樂無窮.2017-10-21
+<br>【節目頻道】：香港電台.第一台
+<br>【節目主持】：何靜江 | 丹尼爾 | 黃興桂
+<br>【節目時間】：18:20 - 19:00
+<br>【檔案名稱】：BallRocks.2017-10-21
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：十項全能.2017-10-21
+<br>【節目頻道】：香港電台.第一台
+<br>【節目主持】：雷雄德 | 徐嘉樂 | 余翠怡 | 林普斯
+<br>【節目時間】：19:00 - 20:00
+<br>【檔案名稱】：Decathlon.2017-10-21
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：古今風雲人物.2017-10-21
+<br>【節目頻道】：香港電台.第一台
+<br>【節目主持】：張偉國 | 麥勁生 | 曾卓然 | 羅永生
+<br>【節目時間】：20:00 - 20:30
+<br>【檔案名稱】：People.2017-10-21
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：尋找繆思.2017-10-21
 <br>【節目頻道】：香港電台.第二台
-<br>【節目日期】：2017-10-20
-<br>【節目主持】：梁德輝 | 黃天頤 | 波盛
-<br>【節目時間】：17:00 - 19:00
-<br>【檔案名稱】：Gimme 5.2017-10-20
+<br>【節目主持】：杜婷
+<br>【節目時間】：20:00 - 20:30
+<br>【檔案名稱】：Searching For The Muses.2017-10-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225077596
-<br>【MediaFire】：http://skamason.com/7jDB
-<br>【MediaFire】：http://www.linkbucks.com/A7LHA
-<br>【百度網盤】：http://skamason.com/7jJP
-<br>【百度網盤】：http://www.linkbucks.com/A7LFV
-<br>【百度密碼】：j3fd
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：恬淡情懷.2017-10-20
+<br>【節目名稱】：電影兩面睇.2017-10-21
 <br>【節目頻道】：香港電台.第一台
-<br>【節目日期】：2017-10-20
-<br>【節目主持】：鄧慧詩
-<br>【節目時間】：20:00 - 21:00
-<br>【檔案名稱】：Subtle Sensuality.2017-10-20
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225077671
-<br>【MediaFire】：http://skamason.com/7jC3
-<br>【MediaFire】：http://www.linkbucks.com/A7LHi
-<br>【百度網盤】：http://skamason.com/7jKP
-<br>【百度網盤】：http://www.linkbucks.com/A7LEn
-<br>【百度密碼】：kxr6
-
-<br>【節目名稱】：音樂情人.2017-10-20
-<br>【節目頻道】：香港電台.第一台
-<br>【節目日期】：2017-10-20
-<br>【節目主持】：鄭子誠
+<br>【節目主持】：李思維 | 紀陶 | 許永耀
 <br>【節目時間】：21:00 - 22:00
-<br>【檔案名稱】：Music Lover.2017-10-20
+<br>【檔案名稱】：Movie World.2017-10-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225077626
-<br>【MediaFire】：http://skamason.com/7jA6
-<br>【MediaFire】：http://www.linkbucks.com/A7LHv
-<br>【百度網盤】：http://skamason.com/7jLM
-<br>【百度網盤】：http://www.linkbucks.com/A7LEb
-<br>【百度密碼】：tgsg
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：講東講西.2017-10-20
+<br>【節目名稱】：有種回憶.2017-10-21
 <br>【節目頻道】：香港電台.第一台
-<br>【節目日期】：2017-10-20
-<br>【節目主持】：黃仲遠 | 胡世傑 | Reeve Kwan
-<br>【節目話題】：搞初創，單靠食腦？
-<br>【節目時間】：23:00 - 01:00
-<br>【檔案名稱】：Free As The Wind.2017-10-20
+<br>【節目主持】：林普斯 | 阿囉 | 黃天恩
+<br>【節目時間】：22:20 - 24:00
+<br>【檔案名稱】：All About Memories.2017-10-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225130956
-<br>【MediaFire】：http://skamason.com/8R1b
-<br>【MediaFire】：http://www.linkbucks.com/A7Bv6
-<br>【百度網盤】：http://skamason.com/8R2j
-<br>【百度網盤】：http://www.linkbucks.com/A7Bvd
-<br>【百度密碼】：jrv2
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
