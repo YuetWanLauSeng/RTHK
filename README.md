@@ -124,12 +124,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：Searching For The Muses.2017-10-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225273123
+<br>【MediaFire】：http://skamason.com/9AOT
+<br>【MediaFire】：http://www.linkbucks.com/AjHC7
+<br>【百度網盤】：http://skamason.com/9A5T
+<br>【百度網盤】：http://www.linkbucks.com/AjHDg
+<br>【百度密碼】：w39f
 
 <br>【節目名稱】：電影兩面睇.2017-10-21
 <br>【節目頻道】：香港電台.第一台
@@ -137,12 +137,12 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Movie World.2017-10-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225273093
+<br>【MediaFire】：http://skamason.com/9AZo
+<br>【MediaFire】：http://www.linkbucks.com/AjHCT
+<br>【百度網盤】：http://skamason.com/9A7a
+<br>【百度網盤】：http://www.linkbucks.com/AjHDY
+<br>【百度密碼】：lwb4
 
 <br>【節目名稱】：有種回憶.2017-10-21
 <br>【節目頻道】：香港電台.第一台
