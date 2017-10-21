@@ -72,12 +72,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：World Discovery.2017-10-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225267774
+<br>【MediaFire】：http://skamason.com/95Bl
+<br>【MediaFire】：http://www.linkbucks.com/A6Q4Z
+<br>【百度網盤】：http://skamason.com/959u
+<br>【百度網盤】：http://www.linkbucks.com/A6Q4g
+<br>【百度密碼】：qpx5
 
 <br>【節目名稱】：波樂無窮.2017-10-21
 <br>【節目頻道】：香港電台.第一台
@@ -85,12 +85,12 @@
 <br>【節目時間】：18:20 - 19:00
 <br>【檔案名稱】：BallRocks.2017-10-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225266382
+<br>【MediaFire】：http://skamason.com/95Eo
+<br>【MediaFire】：http://www.linkbucks.com/A6Q4O
+<br>【百度網盤】：http://skamason.com/957S
+<br>【百度網盤】：http://www.linkbucks.com/A6Q4n
+<br>【百度密碼】：uc4l
 
 <br>【節目名稱】：十項全能.2017-10-21
 <br>【節目頻道】：香港電台.第一台
@@ -98,12 +98,12 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Decathlon.2017-10-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225267216
+<br>【MediaFire】：http://skamason.com/95GV
+<br>【MediaFire】：http://www.linkbucks.com/A6Q4M
+<br>【百度網盤】：http://skamason.com/9540
+<br>【百度網盤】：http://www.linkbucks.com/A6Q4t
+<br>【百度密碼】：p8ut
 
 <br>【節目名稱】：古今風雲人物.2017-10-21
 <br>【節目頻道】：香港電台.第一台
@@ -111,12 +111,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：People.2017-10-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225267262
+<br>【MediaFire】：http://skamason.com/95Hq
+<br>【MediaFire】：http://www.linkbucks.com/A6Q4I
+<br>【百度網盤】：http://skamason.com/9515
+<br>【百度網盤】：http://www.linkbucks.com/A6Q4y
+<br>【百度密碼】：sas7
 
 <br>【節目名稱】：尋找繆思.2017-10-21
 <br>【節目頻道】：香港電台.第二台
