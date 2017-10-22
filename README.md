@@ -35,12 +35,12 @@
 <br>【節目時間】：12:00 - 13:00
 <br>【檔案名稱】：One Minute Reading Sunday.2017-10-22
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225336129
+<br>【MediaFire】：http://skamason.com/AGkP
+<br>【MediaFire】：http://www.linkbucks.com/A69Sl
+<br>【百度網盤】：http://skamason.com/AGnE
+<br>【百度網盤】：http://www.linkbucks.com/A69Rs
+<br>【百度密碼】：j8io
 
 <br>【節目名稱】：中女宅男殺很大.2017-10-22
 <br>【節目頻道】：香港電台.第二台
