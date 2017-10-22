@@ -48,12 +48,12 @@
 <br>【節目時間】：14:00 - 16:00
 <br>【檔案名稱】：Lassies and Nerds.2017-10-22
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225349637
+<br>【MediaFire】：http://skamason.com/Ab2g
+<br>【MediaFire】：http://www.linkbucks.com/A60kz
+<br>【百度網盤】：http://skamason.com/Ab47
+<br>【百度網盤】：http://www.linkbucks.com/A60kf
+<br>【百度密碼】：a4au
 
 <br>【節目名稱】：粵語長片重出江湖.2017-10-22
 <br>【節目頻道】：香港電台.第一台
@@ -61,26 +61,26 @@
 <br>【節目時間】：16:00 - 17:00
 <br>【檔案名稱】：Cantonese Film.2017-10-22
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225349473
+<br>【MediaFire】：http://skamason.com/Ab0e
+<br>【MediaFire】：http://www.linkbucks.com/A60mF
+<br>【百度網盤】：http://skamason.com/Ab6A
+<br>【百度網盤】：http://www.linkbucks.com/A60jL
+<br>【百度密碼】：qqlv
 
 <br>【節目名稱】：城市論壇.2017-10-22
 <br>【節目頻道】：香港電台.第一台
 <br>【節目主持】：蘇敬恒
-<br>【節目話題】：
+<br>【節目話題】：一地兩檢無約束力辯論 印花稅關乎民生要讓路
 <br>【節目時間】：16:00 - 17:00
 <br>【檔案名稱】：City Forum.2017-10-22
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225349534
+<br>【MediaFire】：http://skamason.com/Ab1X
+<br>【MediaFire】：http://www.linkbucks.com/A60lx
+<br>【百度網盤】：http://skamason.com/Ab7h
+<br>【百度網盤】：http://www.linkbucks.com/A60h0
+<br>【百度密碼】：nbik
 
 <br>【節目名稱】：大學堂.2017-10-22
 <br>【節目頻道】：香港電台.第一台
