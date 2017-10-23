@@ -64,12 +64,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：Four for Classics.2017-10-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225434525
+<br>【MediaFire】：http://twineer.com/19xj
+<br>【MediaFire】：http://www.linkbucks.com/A68M4
+<br>【百度網盤】：http://twineer.com/19pR
+<br>【百度網盤】：http://www.linkbucks.com/A68OG
+<br>【百度密碼】：kniz
 
 <br>【節目名稱】：Gimme 5.2017-10-23
 <br>【節目頻道】：香港電台.第二台
@@ -78,12 +78,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-10-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225434622
+<br>【MediaFire】：http://twineer.com/1AMq
+<br>【MediaFire】：http://www.linkbucks.com/A68KF
+<br>【百度網盤】：http://twineer.com/19mf
+<br>【百度網盤】：http://www.linkbucks.com/A68OO
+<br>【百度密碼】：bs8u
 
 <br>【節目名稱】：恬淡情懷.2017-10-23
 <br>【節目頻道】：香港電台.第一台
@@ -92,12 +92,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-10-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225434812
+<br>【MediaFire】：http://twineer.com/19sH
+<br>【MediaFire】：http://www.linkbucks.com/A68NG
+<br>【百度網盤】：http://twineer.com/19eu
+<br>【百度網盤】：http://www.linkbucks.com/A68PI
+<br>【百度密碼】：xqkw
 
 <br>【節目名稱】：音樂情人.2017-10-23
 <br>【節目頻道】：香港電台.第一台
@@ -106,18 +106,18 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-10-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225434688
+<br>【MediaFire】：http://twineer.com/19tb
+<br>【MediaFire】：http://www.linkbucks.com/A68ND
+<br>【百度網盤】：http://twineer.com/19l8
+<br>【百度網盤】：http://www.linkbucks.com/A68Ow
+<br>【百度密碼】：ak3u
 
 <br>【節目名稱】：講東講西.2017-10-23
 <br>【節目頻道】：香港電台.第一台
 <br>【節目日期】：2017-10-23
 <br>【節目主持】：劉天賜 | 馬鼎盛 | 馬恩賜
-<br>【節目話題】：危機與自信
+<br>【節目話題】：十九大，危機與自信
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-10-23
 <br>【節目版本】：未剪輯版
