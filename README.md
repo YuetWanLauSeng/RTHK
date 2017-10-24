@@ -50,12 +50,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-10-24
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225494544
+<br>【MediaFire】：http://twineer.com/2iP8
+<br>【MediaFire】：http://www.linkbucks.com/A7HCg
+<br>【百度網盤】：http://twineer.com/2hhH
+<br>【百度網盤】：http://www.linkbucks.com/A7HGk
+<br>【百度密碼】：6uax
 
 <br>【節目名稱】：Four for Classics 四時行樂.2017-10-24
 <br>【節目頻道】：香港電台.第四台
@@ -64,12 +64,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：Four for Classics.2017-10-24
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225494194
+<br>【MediaFire】：http://twineer.com/2hz7
+<br>【MediaFire】：http://www.linkbucks.com/A7HFE
+<br>【百度網盤】：http://twineer.com/2hlL
+<br>【百度網盤】：http://www.linkbucks.com/A7HGO
+<br>【百度密碼】：e7in
 
 <br>【節目名稱】：Gimme 5.2017-10-24
 <br>【節目頻道】：香港電台.第二台
@@ -78,12 +78,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-10-24
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225494347
+<br>【MediaFire】：http://twineer.com/2i0K
+<br>【MediaFire】：http://www.linkbucks.com/A7HFB
+<br>【百度網盤】：http://twineer.com/2hk6
+<br>【百度網盤】：http://www.linkbucks.com/A7HGX
+<br>【百度密碼】：tq9j
 
 <br>【節目名稱】：恬淡情懷.2017-10-24
 <br>【節目頻道】：香港電台.第一台
