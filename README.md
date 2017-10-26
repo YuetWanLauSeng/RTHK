@@ -106,12 +106,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-10-26
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225796571
+<br>【MediaFire】：http://twineer.com/6Qaj
+<br>【MediaFire】：http://www.linkbucks.com/A7gyG
+<br>【百度網盤】：http://twineer.com/6Q05
+<br>【百度網盤】：http://www.linkbucks.com/A7g1C
+<br>【百度密碼】：y4i3
 
 <br>【節目名稱】：音樂情人.2017-10-26
 <br>【節目頻道】：香港電台.第一台
@@ -120,12 +120,12 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-10-26
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225796527
+<br>【MediaFire】：http://twineer.com/6Qbq
+<br>【MediaFire】：http://www.linkbucks.com/A7gx9
+<br>【百度網盤】：http://twineer.com/6QA1
+<br>【百度網盤】：http://www.linkbucks.com/A7g0d
+<br>【百度密碼】：stha
 
 <br>【節目名稱】：講東講西.2017-10-26
 <br>【節目頻道】：香港電台.第一台
