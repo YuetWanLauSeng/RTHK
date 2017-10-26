@@ -50,12 +50,12 @@
 <br>【節目時間】：15:00 - 16:30
 <br>【檔案名稱】：China On The Dot.2017-10-26
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225775627
+<br>【MediaFire】：http://twineer.com/60nV
+<br>【MediaFire】：http://www.linkbucks.com/A7m9D
+<br>【百度網盤】：http://twineer.com/607D
+<br>【百度網盤】：http://www.linkbucks.com/A7nET
+<br>【百度密碼】：xygw
 
 <br>【節目名稱】：守下留情.2017-10-26
 <br>【節目頻道】：香港電台.第二台
@@ -64,12 +64,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-10-26
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225775760
+<br>【MediaFire】：http://twineer.com/60pv
+<br>【MediaFire】：http://www.linkbucks.com/A7m82
+<br>【百度網盤】：http://twineer.com/603j
+<br>【百度網盤】：http://www.linkbucks.com/A7nEl
+<br>【百度密碼】：5qnu
 
 <br>【節目名稱】：Four for Classics 四時行樂.2017-10-26
 <br>【節目頻道】：香港電台.第四台
