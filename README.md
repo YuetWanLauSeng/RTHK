@@ -78,12 +78,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：Four for Classics.2017-10-27
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225915211
+<br>【MediaFire】：http://twineer.com/83so
+<br>【MediaFire】：http://www.linkbucks.com/A7qs4
+<br>【百度網盤】：http://twineer.com/83v1
+<br>【百度網盤】：http://www.linkbucks.com/A7qsb
+<br>【百度密碼】：t1sz
 
 <br>【節目名稱】：Gimme 5.2017-10-27
 <br>【節目頻道】：香港電台.第二台
@@ -92,12 +92,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-10-27
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225891733
+<br>【MediaFire】：http://twineer.com/83rb
+<br>【MediaFire】：http://www.linkbucks.com/A7qtG
+<br>【百度網盤】：http://twineer.com/83xp
+<br>【百度網盤】：http://www.linkbucks.com/A7qrj
+<br>【百度密碼】：rn99
 
 <br>【節目名稱】：恬淡情懷.2017-10-27
 <br>【節目頻道】：香港電台.第一台
@@ -106,12 +106,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-10-27
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225892175
+<br>【MediaFire】：http://twineer.com/83pX
+<br>【MediaFire】：http://www.linkbucks.com/A7quJ
+<br>【百度網盤】：http://twineer.com/8400
+<br>【百度網盤】：http://www.linkbucks.com/A7qrb
+<br>【百度密碼】：d2dn
 
 <br>【節目名稱】：音樂情人.2017-10-27
 <br>【節目頻道】：香港電台.第一台
@@ -120,12 +120,12 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-10-27
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225915273
+<br>【MediaFire】：http://twineer.com/83nx
+<br>【MediaFire】：http://www.linkbucks.com/A7qvZ
+<br>【百度網盤】：http://twineer.com/843j
+<br>【百度網盤】：http://www.linkbucks.com/A7qrJ
+<br>【百度密碼】：i2q6
 
 <br>【節目名稱】：講東講西.2017-10-27
 <br>【節目頻道】：香港電台.第一台
