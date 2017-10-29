@@ -88,12 +88,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：University Knowledge Platform.2017-10-29
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226258068
+<br>【MediaFire】：http://twineer.com/Anol
+<br>【MediaFire】：http://www.linkbucks.com/A7t0i
+<br>【百度網盤】：http://twineer.com/AnkC
+<br>【百度網盤】：http://www.linkbucks.com/A7t08
+<br>【百度密碼】：ziqj
 
 <br>【節目名稱】：2000靚歌再重聚.2017-10-29
 <br>【節目頻道】：香港電台.第二台
