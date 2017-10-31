@@ -36,12 +36,12 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Made In HK.2017-10-31
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226460632
+<br>【MediaFire】：http://vializer.com/2NHh
+<br>【MediaFire】：http://www.linkbucks.com/A8D1I
+<br>【百度網盤】：http://vializer.com/2NIb
+<br>【百度網盤】：http://www.linkbucks.com/A8D03
+<br>【百度密碼】：dxdm
 
 <br>【節目名稱】：中國點點點.2017-10-31
 <br>【節目頻道】：香港電台.第一台
@@ -130,8 +130,8 @@
 <br>【節目名稱】：講東講西.2017-10-31
 <br>【節目頻道】：香港電台.第一台
 <br>【節目日期】：2017-10-31
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：劉天賜 | 岑逸飛 | 柯志謙
+<br>【節目話題】：陳皮
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-10-31
 <br>【節目版本】：未剪輯版
