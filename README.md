@@ -36,12 +36,12 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Made In HK.2017-11-01
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226508482
+<br>【MediaFire】：http://vializer.com/4Pq4
+<br>【MediaFire】：http://www.linkbucks.com/A8Ghw
+<br>【百度網盤】：http://vializer.com/4Ps6
+<br>【百度網盤】：http://www.linkbucks.com/A8Ghq
+<br>【百度密碼】：6bey
 
 <br>【節目名稱】：中國點點點.2017-11-01
 <br>【節目頻道】：香港電台.第一台
