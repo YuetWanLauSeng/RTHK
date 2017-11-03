@@ -50,12 +50,12 @@
 <br>【節目時間】：15:00 - 16:30
 <br>【檔案名稱】：China On The Dot.2017-11-03
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226923860
+<br>【MediaFire】：http://vializer.com/87Ge
+<br>【MediaFire】：http://www.linkbucks.com/A8JZW
+<br>【百度網盤】：http://vializer.com/87JA
+<br>【百度網盤】：http://www.linkbucks.com/A8JZO
+<br>【百度密碼】：j53d
 
 <br>【節目名稱】：守下留情.2017-11-03
 <br>【節目頻道】：香港電台.第二台
@@ -64,12 +64,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-11-03
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226924027
+<br>【MediaFire】：http://vializer.com/879W
+<br>【MediaFire】：http://www.linkbucks.com/A8Ndz
+<br>【百度網盤】：http://vializer.com/87I5
+<br>【百度網盤】：http://www.linkbucks.com/A8JZV
+<br>【百度密碼】：imuh
 
 <br>【節目名稱】：Four for Classics 四時行樂.2017-11-03
 <br>【節目頻道】：香港電台.第四台
