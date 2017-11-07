@@ -130,14 +130,14 @@
 <br>【節目名稱】：講東講西.2017-11-06
 <br>【節目頻道】：香港電台.第一台
 <br>【節目日期】：2017-11-06
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：劉天賜 | 馬鼎盛 | 文潔華
+<br>【節目話題】：泛道德
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-11-06
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227302357
+<br>【MediaFire】：http://viwright.com/2FAW
+<br>【MediaFire】：http://www.linkbucks.com/A8uFe
+<br>【百度網盤】：http://viwright.com/2FCN
+<br>【百度網盤】：http://www.linkbucks.com/A8uFZ
+<br>【百度密碼】：u4fh
