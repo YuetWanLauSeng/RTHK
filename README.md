@@ -22,12 +22,12 @@
 <br>【節目時間】：10:00 - 13:00
 <br>【檔案名稱】：Crazy And Happy.2017-11-07
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227318265
+<br>【MediaFire】：http://viwright.com/2hTl
+<br>【MediaFire】：http://www.linkbucks.com/A8oJo
+<br>【百度網盤】：http://viwright.com/2hUf
+<br>【百度網盤】：http://www.linkbucks.com/A8oJN
+<br>【百度密碼】：v5xe
 
 <br>【節目名稱】：Made in Hong Kong 李志剛.2017-11-07
 <br>【節目頻道】：香港電台.第二台
@@ -36,12 +36,12 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Made In HK.2017-11-07
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227318323
+<br>【MediaFire】：http://viwright.com/2hVt
+<br>【MediaFire】：http://www.linkbucks.com/A8oIn
+<br>【百度網盤】：http://viwright.com/2hWh
+<br>【百度網盤】：http://www.linkbucks.com/A8oIe
+<br>【百度密碼】：8rhf
 
 <br>【節目名稱】：中國點點點.2017-11-07
 <br>【節目頻道】：香港電台.第一台
