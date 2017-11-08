@@ -50,12 +50,12 @@
 <br>【節目時間】：15:00 - 16:30
 <br>【檔案名稱】：China On The Dot.2017-11-08
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227399949
+<br>【MediaFire】：http://viwright.com/4kqa
+<br>【MediaFire】：http://www.linkbucks.com/A8cEY
+<br>【百度網盤】：http://viwright.com/4ksJ
+<br>【百度網盤】：http://www.linkbucks.com/A8cEM
+<br>【百度密碼】：guux
 
 <br>【節目名稱】：守下留情.2017-11-08
 <br>【節目頻道】：香港電台.第二台
@@ -64,12 +64,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-11-08
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227400186
+<br>【MediaFire】：http://viwright.com/4kur
+<br>【MediaFire】：http://www.linkbucks.com/A8cEA
+<br>【百度網盤】：http://viwright.com/4kwb
+<br>【百度網盤】：http://www.linkbucks.com/A8cD4
+<br>【百度密碼】：w479
 
 <br>【節目名稱】：Four for Classics 四時行樂.2017-11-08
 <br>【節目頻道】：香港電台.第四台
@@ -78,12 +78,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：Four for Classics.2017-11-08
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227429283
+<br>【MediaFire】：http://viwright.com/4ky1
+<br>【MediaFire】：http://www.linkbucks.com/A8cDy
+<br>【百度網盤】：http://viwright.com/4kzY
+<br>【百度網盤】：http://www.linkbucks.com/A8cDm
+<br>【百度密碼】：wbwe
 
 <br>【節目名稱】：Gimme 5.2017-11-08
 <br>【節目頻道】：香港電台.第二台
@@ -92,12 +92,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-11-08
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227429488
+<br>【MediaFire】：http://viwright.com/4l74
+<br>【MediaFire】：http://www.linkbucks.com/A8cDR
+<br>【百度網盤】：http://viwright.com/4lBZ
+<br>【百度網盤】：http://www.linkbucks.com/A8cCE
+<br>【百度密碼】：xbp9
 
 <br>【節目名稱】：恬淡情懷.2017-11-08
 <br>【節目頻道】：香港電台.第一台
