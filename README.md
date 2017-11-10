@@ -22,72 +22,6 @@
 <br>【節目時間】：10:00 - 13:00
 <br>【檔案名稱】：Crazy And Happy.2017-11-10
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
-
-<br>【節目名稱】：Made in Hong Kong 李志剛.2017-11-10
-<br>【節目頻道】：香港電台.第二台
-<br>【節目日期】：2017-11-10
-<br>【節目主持】：李志剛 | 超B
-<br>【節目時間】：13:00 - 15:00
-<br>【檔案名稱】：Made In HK.2017-11-10
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
-
-<br>【節目名稱】：中國點點點.2017-11-10
-<br>【節目頻道】：香港電台.第一台
-<br>【節目日期】：2017-11-10
-<br>【節目主持】：張鳳萍 | 黃曉玲 | 王磊 | 劉銳紹 | 鄭漢良 | 呂秉權
-<br>【節目時間】：15:00 - 16:30
-<br>【檔案名稱】：China On The Dot.2017-11-10
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
-
-<br>【節目名稱】：守下留情.2017-11-10
-<br>【節目頻道】：香港電台.第二台
-<br>【節目日期】：2017-11-10
-<br>【節目主持】：劉偉恆 | 梁禮勤 | 阿一
-<br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：SeeSaw.2017-11-10
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【節目名稱】：開心日報.2017-11-10
-<br>【節目頻道】：香港電台.第一台
-<br>【節目日期】：2017-11-10
-<br>【節目主持】：何守信 | 陳淑蘭 | 林超榮 | 丹尼爾 | 杜雯惠
-<br>【節目時間】：10:20 - 12:00
-<br>【檔案名稱】：Happy Daily.2017-11-10
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227761465
-<br>【MediaFire】：http://viwright.com/7YtV
-<br>【MediaFire】：http://www.linkbucks.com/ANB5G
-<br>【百度網盤】：http://viwright.com/7Yut
-<br>【百度網盤】：http://www.linkbucks.com/ANB5E
-<br>【百度密碼】：scub
-
-<br>【節目名稱】：瘋Show快活人.2017-11-10
-<br>【節目頻道】：香港電台.第二台
-<br>【節目日期】：2017-11-10
-<br>【節目主持】：貴花田 | 曾志豪 | 王耀祖 | 斌仔 | 黃天頤 | 波盛
-<br>【節目時間】：10:00 - 13:00
-<br>【檔案名稱】：Crazy And Happy.2017-11-10
-<br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227768864
 <br>【MediaFire】：http://viwright.com/7bsf
 <br>【MediaFire】：http://www.linkbucks.com/A5e5d
@@ -102,12 +36,12 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Made In HK.2017-11-10
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227785276
+<br>【MediaFire】：http://viwright.com/7kbh
+<br>【MediaFire】：http://www.linkbucks.com/ALiiu
+<br>【百度網盤】：http://viwright.com/7kdI
+<br>【百度網盤】：http://www.linkbucks.com/ALiQy
+<br>【百度密碼】：fbty
 
 <br>【節目名稱】：中國點點點.2017-11-10
 <br>【節目頻道】：香港電台.第一台
