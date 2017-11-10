@@ -67,9 +67,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227812902
 <br>【MediaFire】：http://viwright.com/7wvj
 <br>【MediaFire】：http://www.linkbucks.com/anJY
-<br>【百度網盤】：http://viwright.com/7wuF
-<br>【百度網盤】：http://www.linkbucks.com/anJX
-<br>【百度密碼】：ag45
+<br>【百度網盤】：http://viwright.com/86o1
+<br>【百度網盤】：http://www.linkbucks.com/Zqye
+<br>【百度密碼】：vpju
 
 <br>【節目名稱】：Four for Classics 四時行樂.2017-11-10
 <br>【節目頻道】：香港電台.第四台
@@ -78,12 +78,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：Four for Classics.2017-11-10
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227812698
+<br>【MediaFire】：http://viwright.com/8AgE
+<br>【MediaFire】：http://www.linkbucks.com/YeTj
+<br>【百度網盤】：http://viwright.com/8Ae7
+<br>【百度網盤】：http://www.linkbucks.com/YZul
+<br>【百度密碼】：ctna
 
 <br>【節目名稱】：Gimme 5.2017-11-10
 <br>【節目頻道】：香港電台.第二台
@@ -92,12 +92,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-11-10
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227828162
+<br>【MediaFire】：http://viwright.com/8AcU
+<br>【MediaFire】：http://www.linkbucks.com/Yg9g
+<br>【百度網盤】：http://viwright.com/8Ae7
+<br>【百度網盤】：http://www.linkbucks.com/YgKV
+<br>【百度密碼】：ctna
 
 <br>【節目名稱】：恬淡情懷.2017-11-10
 <br>【節目頻道】：香港電台.第一台
@@ -106,12 +106,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-11-10
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227828284
+<br>【MediaFire】：http://viwright.com/8AXP
+<br>【MediaFire】：http://www.linkbucks.com/ZhOW
+<br>【百度網盤】：http://viwright.com/8Ab3
+<br>【百度網盤】：http://www.linkbucks.com/YhID
+<br>【百度密碼】：e7ti
 
 <br>【節目名稱】：音樂情人.2017-11-10
 <br>【節目頻道】：香港電台.第一台
@@ -120,18 +120,18 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-11-10
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227828210
+<br>【MediaFire】：http://viwright.com/8ATc
+<br>【MediaFire】：http://www.linkbucks.com/Zhn9
+<br>【百度網盤】：http://viwright.com/8AVV
+<br>【百度網盤】：http://www.linkbucks.com/ZhRf
+<br>【百度密碼】：qnh9
 
 <br>【節目名稱】：講東講西.2017-11-10
 <br>【節目頻道】：香港電台.第一台
 <br>【節目日期】：2017-11-10
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：梁敬國 | 黃仲遠 | 王兆俊
+<br>【節目話題】：傳統廣告已死?
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-11-10
 <br>【節目版本】：未剪輯版
