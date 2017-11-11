@@ -59,12 +59,12 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：50 Years After.2017-11-11
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227934586
+<br>【MediaFire】：http://viwright.com/9uRD
+<br>【MediaFire】：http://www.linkbucks.com/A9Byq
+<br>【百度網盤】：http://viwright.com/9uSt
+<br>【百度網盤】：http://www.linkbucks.com/A9Bwa
+<br>【百度密碼】：h7nq
 
 <br>【節目名稱】：旅遊樂園.2017-11-11
 <br>【節目頻道】：香港電台.第一台
@@ -72,12 +72,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：World Discovery.2017-11-11
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227935377
+<br>【MediaFire】：http://viwright.com/9ug3
+<br>【MediaFire】：http://www.linkbucks.com/A9Bu1
+<br>【百度網盤】：http://viwright.com/9uuo
+<br>【百度網盤】：http://www.linkbucks.com/A9Bqa
+<br>【百度密碼】：xnc6
 
 <br>【節目名稱】：波樂無窮.2017-11-11
 <br>【節目頻道】：香港電台.第一台
@@ -85,12 +85,12 @@
 <br>【節目時間】：18:20 - 19:00
 <br>【檔案名稱】：BallRocks.2017-11-11
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227934680
+<br>【MediaFire】：http://viwright.com/9uxe
+<br>【MediaFire】：http://www.linkbucks.com/A9Bpb
+<br>【百度網盤】：http://viwright.com/9v00
+<br>【百度網盤】：http://www.linkbucks.com/A9BpN
+<br>【百度密碼】：jaqv
 
 <br>【節目名稱】：十項全能.2017-11-11
 <br>【節目頻道】：香港電台.第一台
@@ -98,12 +98,12 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Decathlon.2017-11-11
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227934816
+<br>【MediaFire】：http://viwright.com/9v2f
+<br>【MediaFire】：http://www.linkbucks.com/A9BpC
+<br>【百度網盤】：http://viwright.com/9v44
+<br>【百度網盤】：http://www.linkbucks.com/A9Bmq
+<br>【百度密碼】：w37r
 
 <br>【節目名稱】：古今風雲人物.2017-11-11
 <br>【節目頻道】：香港電台.第一台
@@ -111,12 +111,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：People.2017-11-11
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227935103
+<br>【MediaFire】：http://viwright.com/9v7q
+<br>【MediaFire】：http://www.linkbucks.com/A9BmI
+<br>【百度網盤】：http://viwright.com/9vB7
+<br>【百度網盤】：http://www.linkbucks.com/A9Blu
+<br>【百度密碼】：7yrv
 
 <br>【節目名稱】：尋找繆思.2017-11-11
 <br>【節目頻道】：香港電台.第二台
@@ -124,12 +124,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：Searching For The Muses.2017-11-11
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227935121
+<br>【MediaFire】：http://viwright.com/9vJn
+<br>【MediaFire】：http://www.linkbucks.com/A9BjE
+<br>【百度網盤】：http://viwright.com/9vL5
+<br>【百度網盤】：http://www.linkbucks.com/A9Bh2
+<br>【百度密碼】：5u4s
 
 <br>【節目名稱】：電影兩面睇.2017-11-11
 <br>【節目頻道】：香港電台.第一台
