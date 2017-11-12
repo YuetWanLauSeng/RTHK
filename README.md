@@ -137,12 +137,12 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Movie World.2017-11-11
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227996852
+<br>【MediaFire】：http://viwright.com/Aki8
+<br>【MediaFire】：http://www.linkbucks.com/A9Zs5
+<br>【百度網盤】：http://viwright.com/Akjl
+<br>【百度網盤】：http://www.linkbucks.com/A9ZPh
+<br>【百度密碼】：whsg
 
 <br>【節目名稱】：有種回憶.2017-11-11
 <br>【節目頻道】：香港電台.第一台
@@ -150,9 +150,9 @@
 <br>【節目時間】：22:20 - 24:00
 <br>【檔案名稱】：All About Memories.2017-11-11
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227996438
+<br>【MediaFire】：http://viwright.com/Aklt
+<br>【MediaFire】：http://www.linkbucks.com/A9ZPe
+<br>【百度網盤】：http://viwright.com/Akmv
+<br>【百度網盤】：http://www.linkbucks.com/A9ZPW
+<br>【百度密碼】：373v
