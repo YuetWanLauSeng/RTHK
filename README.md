@@ -1,109 +1,143 @@
 ### 歡迎瀏覽本人的電台論壇
 ### http://www.yuetwanlauseng.com
 
-<br>【節目名稱】：舊日的足跡.2017-11-12
+<br>【節目名稱】：開心日報.2017-11-13
 <br>【節目頻道】：香港電台.第一台
-<br>【節目主持】：車淑梅
-<br>【節目嘉賓】：嶺南大學校長鄭國漢
-<br>【節目時間】：08:00 - 10:00
-<br>【檔案名稱】：HK Footpath.2017-11-12
+<br>【節目日期】：2017-11-13
+<br>【節目主持】：何守信 | 陳淑蘭 | 林超榮 | 丹尼爾 | 杜雯惠
+<br>【節目時間】：10:20 - 12:00
+<br>【檔案名稱】：Happy Daily.2017-11-13
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228006916
-<br>【MediaFire】：http://viwright.com/AphL
-<br>【MediaFire】：http://www.linkbucks.com/A9XVl
-<br>【百度網盤】：http://viwright.com/Api9
-<br>【百度網盤】：http://www.linkbucks.com/A9XTh
-<br>【百度密碼】：6497
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228201119
+<br>【MediaFire】：http://yabuilder.com/zWz
+<br>【MediaFire】：http://www.linkbucks.com/A9fZY
+<br>【百度網盤】：http://yabuilder.com/zYC
+<br>【百度網盤】：http://www.linkbucks.com/A9fYR
+<br>【百度密碼】：41dn
 
-<br>【節目名稱】：講東講西.2017-11-12
+<br>【節目名稱】：瘋Show快活人.2017-11-13
 <br>【節目頻道】：香港電台.第二台
-<br>【節目主持】：劉天賜 | 盧偉力 | 文潔華
-<br>【節目話題】：改變命運
-<br>【節目時間】：10:00 - 12:00
-<br>【檔案名稱】：Free As The Wind.2017-11-12
+<br>【節目日期】：2017-11-13
+<br>【節目主持】：貴花田 | 曾志豪 | 王耀祖 | 斌仔 | 黃天頤 | 波盛
+<br>【節目時間】：10:00 - 13:00
+<br>【檔案名稱】：Crazy And Happy.2017-11-13
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228006891
-<br>【MediaFire】：http://viwright.com/ApjU
-<br>【MediaFire】：http://www.linkbucks.com/A9XS6
-<br>【百度網盤】：http://viwright.com/ApkR
-<br>【百度網盤】：http://www.linkbucks.com/A9XSM
-<br>【百度密碼】：ymty
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228200750
+<br>【MediaFire】：http://yabuilder.com/zmU
+<br>【MediaFire】：http://www.linkbucks.com/A9fD3
+<br>【百度網盤】：http://yabuilder.com/zoN
+<br>【百度網盤】：http://www.linkbucks.com/A9fDC
+<br>【百度密碼】：ybhm
 
-<br>【節目名稱】：一分鐘閱讀.2017-11-12
-<br>【節目頻道】：香港電台.第一台
-<br>【節目主持】：李怡
-<br>【節目時間】：12:00 - 13:00
-<br>【檔案名稱】：One Minute Reading Sunday.2017-11-12
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228044349
-<br>【MediaFire】：http://viwright.com/BHfi
-<br>【MediaFire】：http://www.linkbucks.com/A9xCK
-<br>【百度網盤】：http://viwright.com/BHi2
-<br>【百度網盤】：http://www.linkbucks.com/A9xBV
-<br>【百度密碼】：5r2d
-
-<br>【節目名稱】：中女宅男殺很大.2017-11-12
+<br>【節目名稱】：Made in Hong Kong 李志剛.2017-11-13
 <br>【節目頻道】：香港電台.第二台
-<br>【節目主持】：彭晴 | 曾志豪
-<br>【節目時間】：14:00 - 16:00
-<br>【檔案名稱】：Lassies and Nerds.2017-11-12
+<br>【節目日期】：2017-11-13
+<br>【節目主持】：李志剛 | 超B
+<br>【節目時間】：13:00 - 15:00
+<br>【檔案名稱】：Made In HK.2017-11-13
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228044193
-<br>【MediaFire】：http://viwright.com/BHku
-<br>【MediaFire】：http://www.linkbucks.com/A9xAJ
-<br>【百度網盤】：http://viwright.com/BHrg
-<br>【百度網盤】：http://www.linkbucks.com/A9w57
-<br>【百度密碼】：8rzu
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228201488
+<br>【MediaFire】：http://yabuilder.com/zqH
+<br>【MediaFire】：http://www.linkbucks.com/A9fC5
+<br>【百度網盤】：http://yabuilder.com/zrb
+<br>【百度網盤】：http://www.linkbucks.com/A9fCo
+<br>【百度密碼】：gp33
 
-<br>【節目名稱】：粵語長片重出江湖.2017-11-12
+<br>【節目名稱】：中國點點點.2017-11-13
 <br>【節目頻道】：香港電台.第一台
-<br>【節目主持】：吳俊雄
-<br>【節目時間】：16:00 - 17:00
-<br>【檔案名稱】：Cantonese Film.2017-11-12
+<br>【節目日期】：2017-11-13
+<br>【節目主持】：張鳳萍 | 黃曉玲 | 王磊 | 劉銳紹 | 鄭漢良 | 呂秉權
+<br>【節目時間】：15:00 - 16:30
+<br>【檔案名稱】：China On The Dot.2017-11-13
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228043191
-<br>【MediaFire】：http://viwright.com/BHwK
-<br>【MediaFire】：http://www.linkbucks.com/A9wzi
-<br>【百度網盤】：http://viwright.com/BHy9
-<br>【百度網盤】：http://www.linkbucks.com/A9wzC
-<br>【百度密碼】：7xie
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228199932
+<br>【MediaFire】：http://yabuilder.com/zuI
+<br>【MediaFire】：http://www.linkbucks.com/A9fB7
+<br>【百度網盤】：http://yabuilder.com/zvj
+<br>【百度網盤】：http://www.linkbucks.com/A9fBw
+<br>【百度密碼】：ufyn
 
-<br>【節目名稱】：城市論壇.2017-11-12
-<br>【節目頻道】：香港電台.第一台
-<br>【節目主持】：蘇敬恒
-<br>【節目話題】：議事規則修訂戰 兩派磋商重開展
-<br>【節目時間】：16:00 - 17:00
-<br>【檔案名稱】：City Forum.2017-11-12
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228043351
-<br>【MediaFire】：http://viwright.com/BI0U
-<br>【MediaFire】：http://www.linkbucks.com/A9wyj
-<br>【百度網盤】：http://viwright.com/BI2h
-<br>【百度網盤】：http://www.linkbucks.com/A9wyP
-<br>【百度密碼】：df8n
-
-<br>【節目名稱】：大學堂.2017-11-12
-<br>【節目頻道】：香港電台.第一台
-<br>【節目主持】：趙善恩
-<br>【節目時間】：20:00 - 20:30
-<br>【檔案名稱】：University Knowledge Platform.2017-11-12
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228086690
-<br>【MediaFire】：http://yabuilder.com/5dQ
-<br>【MediaFire】：http://www.linkbucks.com/A9Cpl
-<br>【百度網盤】：http://yabuilder.com/5fj
-<br>【百度網盤】：http://www.linkbucks.com/A9Cpd
-<br>【百度密碼】：y244
-
-<br>【節目名稱】：2000靚歌再重聚.2017-11-12
+<br>【節目名稱】：守下留情.2017-11-13
 <br>【節目頻道】：香港電台.第二台
-<br>【節目主持】：區瑞強
-<br>【節目時間】：21:00 - 24:00
-<br>【檔案名稱】：Reunion.2017-11-12
+<br>【節目日期】：2017-11-13
+<br>【節目主持】：劉偉恆 | 梁禮勤 | 阿一
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：SeeSaw.2017-11-13
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228098048
-<br>【MediaFire】：http://yabuilder.com/5iS
-<br>【MediaFire】：http://www.linkbucks.com/A9Cpa
-<br>【百度網盤】：http://yabuilder.com/5kb
-<br>【百度網盤】：http://www.linkbucks.com/A9CpX
-<br>【百度密碼】：85g4
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228201684
+<br>【MediaFire】：http://yabuilder.com/zxL
+<br>【MediaFire】：http://www.linkbucks.com/A9fBO
+<br>【百度網盤】：http://yabuilder.com/zyh
+<br>【百度網盤】：http://www.linkbucks.com/A9fBF
+<br>【百度密碼】：wqqu
+
+<br>【節目名稱】：Four for Classics 四時行樂.2017-11-13
+<br>【節目頻道】：香港電台.第四台
+<br>【節目日期】：2017-11-13
+<br>【節目主持】：凌崎偵
+<br>【節目時間】：16:00 - 18:00
+<br>【檔案名稱】：Four for Classics.2017-11-13
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228200878
+<br>【MediaFire】：http://yabuilder.com/100G
+<br>【MediaFire】：http://www.linkbucks.com/A9fAs
+<br>【百度網盤】：http://yabuilder.com/1024
+<br>【百度網盤】：http://www.linkbucks.com/A9fAH
+<br>【百度密碼】：t7rj
+
+<br>【節目名稱】：Gimme 5.2017-11-13
+<br>【節目頻道】：香港電台.第二台
+<br>【節目日期】：2017-11-13
+<br>【節目主持】：梁德輝 | 黃天頤 | 波盛
+<br>【節目時間】：17:00 - 19:00
+<br>【檔案名稱】：Gimme 5.2017-11-13
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228201001
+<br>【MediaFire】：http://yabuilder.com/103t
+<br>【MediaFire】：http://www.linkbucks.com/A9e9c
+<br>【百度網盤】：http://yabuilder.com/105U
+<br>【百度網盤】：http://www.linkbucks.com/A9e9a
+<br>【百度密碼】：qxwb
+
+<br>【節目名稱】：恬淡情懷.2017-11-13
+<br>【節目頻道】：香港電台.第一台
+<br>【節目日期】：2017-11-13
+<br>【節目主持】：鄧慧詩
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Subtle Sensuality.2017-11-13
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：音樂情人.2017-11-13
+<br>【節目頻道】：香港電台.第一台
+<br>【節目日期】：2017-11-13
+<br>【節目主持】：鄭子誠
+<br>【節目時間】：21:00 - 22:00
+<br>【檔案名稱】：Music Lover.2017-11-13
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：講東講西.2017-11-13
+<br>【節目頻道】：香港電台.第一台
+<br>【節目日期】：2017-11-13
+<br>【節目主持】：
+<br>【節目話題】：
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：Free As The Wind.2017-11-13
+<br>【節目版本】：未剪輯版
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
