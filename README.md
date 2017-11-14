@@ -106,12 +106,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-11-13
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228236423
+<br>【MediaFire】：http://yabuilder.com/1y5B
+<br>【MediaFire】：http://www.linkbucks.com/A8yna
+<br>【百度網盤】：http://yabuilder.com/1y6T
+<br>【百度網盤】：http://www.linkbucks.com/A8yl4
+<br>【百度密碼】：cu8p
 
 <br>【節目名稱】：音樂情人.2017-11-13
 <br>【節目頻道】：香港電台.第一台
@@ -120,24 +120,24 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-11-13
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228235497
+<br>【MediaFire】：http://yabuilder.com/1y8o
+<br>【MediaFire】：http://www.linkbucks.com/A8yjA
+<br>【百度網盤】：http://yabuilder.com/1yA0
+<br>【百度網盤】：http://www.linkbucks.com/A8yfx
+<br>【百度密碼】：182j
 
 <br>【節目名稱】：講東講西.2017-11-13
 <br>【節目頻道】：香港電台.第一台
 <br>【節目日期】：2017-11-13
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：待定
+<br>【節目話題】：中史成必修科，歷史應如何學如何教
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-11-13
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228235272
+<br>【MediaFire】：http://yabuilder.com/1yFd
+<br>【MediaFire】：http://www.linkbucks.com/A8yV6
+<br>【百度網盤】：http://yabuilder.com/1yGQ
+<br>【百度網盤】：http://www.linkbucks.com/A8yUs
+<br>【百度密碼】：wxu8
