@@ -50,12 +50,12 @@
 <br>【節目時間】：15:00 - 16:30
 <br>【檔案名稱】：China On The Dot.2017-11-16
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228525637
+<br>【MediaFire】：http://yabuilder.com/6Ujz
+<br>【MediaFire】：http://www.linkbucks.com/A9Nbu
+<br>【百度網盤】：http://yabuilder.com/6Ulc
+<br>【百度網盤】：http://www.linkbucks.com/A9Nbn
+<br>【百度密碼】：sbi7
 
 <br>【節目名稱】：守下留情.2017-11-16
 <br>【節目頻道】：香港電台.第二台
@@ -64,26 +64,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-11-16
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
-
-<br>【節目名稱】：Four for Classics 四時行樂.2017-11-16
-<br>【節目頻道】：香港電台.第四台
-<br>【節目日期】：2017-11-16
-<br>【節目主持】：凌崎偵
-<br>【節目時間】：16:00 - 18:00
-<br>【檔案名稱】：Four for Classics.2017-11-16
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228527518
+<br>【MediaFire】：http://yabuilder.com/6UqG
+<br>【MediaFire】：http://www.linkbucks.com/A9Nbd
+<br>【百度網盤】：http://yabuilder.com/6Usm
+<br>【百度網盤】：http://www.linkbucks.com/A9Nbb
+<br>【百度密碼】：bej4
 
 <br>【節目名稱】：Gimme 5.2017-11-16
 <br>【節目頻道】：香港電台.第二台
@@ -92,12 +78,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-11-16
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228526484
+<br>【MediaFire】：http://yabuilder.com/6UzP
+<br>【MediaFire】：http://www.linkbucks.com/A9Na9
+<br>【百度網盤】：http://yabuilder.com/6V15
+<br>【百度網盤】：http://www.linkbucks.com/A9Na4
+<br>【百度密碼】：b68w
 
 <br>【節目名稱】：恬淡情懷.2017-11-16
 <br>【節目頻道】：香港電台.第一台
@@ -106,12 +92,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-11-16
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228527642
+<br>【MediaFire】：http://yabuilder.com/6V4b
+<br>【MediaFire】：http://www.linkbucks.com/A9NaJ
+<br>【百度網盤】：http://yabuilder.com/6V5q
+<br>【百度網盤】：http://www.linkbucks.com/A9NaE
+<br>【百度密碼】：u6q3
 
 <br>【節目名稱】：音樂情人.2017-11-16
 <br>【節目頻道】：香港電台.第一台
@@ -120,12 +106,12 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Music Lover.2017-11-16
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228541801
+<br>【MediaFire】：http://yabuilder.com/6VA3
+<br>【MediaFire】：http://www.linkbucks.com/A9NZp
+<br>【百度網盤】：http://yabuilder.com/6VBU
+<br>【百度網盤】：http://www.linkbucks.com/A9NZo
+<br>【百度密碼】：mfey
 
 <br>【節目名稱】：講東講西.2017-11-16
 <br>【節目頻道】：香港電台.第一台
