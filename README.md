@@ -50,12 +50,12 @@
 <br>【節目時間】：15:00 - 16:30
 <br>【檔案名稱】：China On The Dot.2017-11-17
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228624602
+<br>【MediaFire】：http://yabuilder.com/801e
+<br>【MediaFire】：http://www.linkbucks.com/A9VLb
+<br>【百度網盤】：http://yabuilder.com/802h
+<br>【百度網盤】：http://www.linkbucks.com/A9VLP
+<br>【百度密碼】：2vh6
 
 <br>【節目名稱】：守下留情.2017-11-17
 <br>【節目頻道】：香港電台.第二台
@@ -64,12 +64,12 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：SeeSaw.2017-11-17
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228624875
+<br>【MediaFire】：http://yabuilder.com/81BJ
+<br>【MediaFire】：http://www.linkbucks.com/A9VAV
+<br>【百度網盤】：http://yabuilder.com/804b
+<br>【百度網盤】：http://www.linkbucks.com/A9VKz
+<br>【百度密碼】：khkg
 
 <br>【節目名稱】：Four for Classics 四時行樂.2017-11-17
 <br>【節目頻道】：香港電台.第四台
@@ -78,12 +78,12 @@
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：Four for Classics.2017-11-17
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228624712
+<br>【MediaFire】：http://yabuilder.com/806w
+<br>【MediaFire】：http://www.linkbucks.com/A9VKn
+<br>【百度網盤】：http://yabuilder.com/8087
+<br>【百度網盤】：http://www.linkbucks.com/A9VKW
+<br>【百度密碼】：thk2
 
 <br>【節目名稱】：Gimme 5.2017-11-17
 <br>【節目頻道】：香港電台.第二台
@@ -92,12 +92,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Gimme 5.2017-11-17
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228624779
+<br>【MediaFire】：http://yabuilder.com/81D6
+<br>【MediaFire】：http://www.linkbucks.com/A9U97
+<br>【百度網盤】：http://yabuilder.com/809u
+<br>【百度網盤】：http://www.linkbucks.com/A9VKK
+<br>【百度密碼】：apv5
 
 <br>【節目名稱】：恬淡情懷.2017-11-17
 <br>【節目頻道】：香港電台.第一台
@@ -106,12 +106,12 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Subtle Sensuality.2017-11-17
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228624895
+<br>【MediaFire】：http://yabuilder.com/80BJ
+<br>【MediaFire】：http://www.linkbucks.com/A9VJ7
+<br>【百度網盤】：http://yabuilder.com/80E9
+<br>【百度網盤】：http://www.linkbucks.com/A9VJx
+<br>【百度密碼】：shvw
 
 <br>【節目名稱】：音樂情人.2017-11-17
 <br>【節目頻道】：香港電台.第一台
