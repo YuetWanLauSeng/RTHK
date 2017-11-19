@@ -35,12 +35,12 @@
 <br>【節目時間】：12:00 - 13:00
 <br>【檔案名稱】：One Minute Reading Sunday.2017-11-19
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228858758
+<br>【MediaFire】：http://yabuilder.com/B7Bu
+<br>【MediaFire】：http://www.linkbucks.com/A9ZUf
+<br>【百度網盤】：http://yabuilder.com/B7DX
+<br>【百度網盤】：http://www.linkbucks.com/A9ZUH
+<br>【百度密碼】：xsqc
 
 <br>【節目名稱】：中女宅男殺很大.2017-11-19
 <br>【節目頻道】：香港電台.第二台
@@ -48,12 +48,12 @@
 <br>【節目時間】：14:00 - 16:00
 <br>【檔案名稱】：Lassies and Nerds.2017-11-19
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228858289
+<br>【MediaFire】：http://yabuilder.com/B7Fy
+<br>【MediaFire】：http://www.linkbucks.com/A9ZTs
+<br>【百度網盤】：http://yabuilder.com/B7HU
+<br>【百度網盤】：http://www.linkbucks.com/A9ZTW
+<br>【百度密碼】：qr82
 
 <br>【節目名稱】：粵語長片重出江湖.2017-11-19
 <br>【節目頻道】：香港電台.第一台
@@ -61,26 +61,26 @@
 <br>【節目時間】：16:00 - 17:00
 <br>【檔案名稱】：Cantonese Film.2017-11-19
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228867777
+<br>【MediaFire】：http://yabuilder.com/B83e
+<br>【MediaFire】：http://www.linkbucks.com/A9ZKY
+<br>【百度網盤】：http://yabuilder.com/B866
+<br>【百度網盤】：http://www.linkbucks.com/A9ZKM
+<br>【百度密碼】：yndt
 
 <br>【節目名稱】：城市論壇.2017-11-19
 <br>【節目頻道】：香港電台.第一台
 <br>【節目主持】：蘇敬恒
-<br>【節目話題】：
+<br>【節目話題】：李飛講解《基本法》 國家安全須問責
 <br>【節目時間】：16:00 - 17:00
 <br>【檔案名稱】：City Forum.2017-11-19
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228857689
+<br>【MediaFire】：http://yabuilder.com/B89F
+<br>【MediaFire】：http://www.linkbucks.com/A9ZJy
+<br>【百度網盤】：http://yabuilder.com/B8Ab
+<br>【百度網盤】：http://www.linkbucks.com/A9ZJi
+<br>【百度密碼】：bkvt
 
 <br>【節目名稱】：大學堂.2017-11-19
 <br>【節目頻道】：香港電台.第一台
@@ -88,12 +88,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：University Knowledge Platform.2017-11-19
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228859728
+<br>【MediaFire】：http://yabuilder.com/B8By
+<br>【MediaFire】：http://www.linkbucks.com/A9ZJT
+<br>【百度網盤】：http://yabuilder.com/B8DE
+<br>【百度網盤】：http://www.linkbucks.com/A9ZJF
+<br>【百度密碼】：j6wm
 
 <br>【節目名稱】：2000靚歌再重聚.2017-11-19
 <br>【節目頻道】：香港電台.第二台
