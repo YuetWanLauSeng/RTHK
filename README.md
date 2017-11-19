@@ -111,25 +111,12 @@
 <br>【節目時間】：20:00 - 20:30
 <br>【檔案名稱】：People.2017-11-18
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
-
-<br>【節目名稱】：尋找繆思.2017-11-18
-<br>【節目頻道】：香港電台.第二台
-<br>【節目主持】：杜婷
-<br>【節目時間】：20:00 - 20:30
-<br>【檔案名稱】：Searching For The Muses.2017-11-18
-<br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228716467
+<br>【MediaFire】：http://yabuilder.com/ARR1
+<br>【MediaFire】：http://www.linkbucks.com/A9dqm
+<br>【百度網盤】：http://yabuilder.com/ARS9
+<br>【百度網盤】：http://www.linkbucks.com/A9dqi
+<br>【百度密碼】：tvqc
 
 <br>【節目名稱】：電影兩面睇.2017-11-18
 <br>【節目頻道】：香港電台.第一台
@@ -137,12 +124,12 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Movie World.2017-11-18
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228716462
+<br>【MediaFire】：http://yabuilder.com/ARXA
+<br>【MediaFire】：http://www.linkbucks.com/A9dpM
+<br>【百度網盤】：http://yabuilder.com/ARYl
+<br>【百度網盤】：http://www.linkbucks.com/A9dpL
+<br>【百度密碼】：wkgu
 
 <br>【節目名稱】：有種回憶.2017-11-18
 <br>【節目頻道】：香港電台.第一台
@@ -150,9 +137,9 @@
 <br>【節目時間】：22:20 - 24:00
 <br>【檔案名稱】：All About Memories.2017-11-18
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228756880
+<br>【MediaFire】：http://yabuilder.com/ARae
+<br>【MediaFire】：http://www.linkbucks.com/A9doh
+<br>【百度網盤】：http://yabuilder.com/ARbf
+<br>【百度網盤】：http://www.linkbucks.com/A9dof
+<br>【百度密碼】：4gu9
