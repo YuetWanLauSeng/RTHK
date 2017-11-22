@@ -137,26 +137,26 @@
 <br>【節目時間】：22:35 - 23:00
 <br>【檔案名稱】：City Snapshot.2017-11-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229246873
+<br>【MediaFire】：http://yamechanic.com/3are
+<br>【MediaFire】：http://www.linkbucks.com/A99FY
+<br>【百度網盤】：http://yamechanic.com/3asc
+<br>【百度網盤】：http://www.linkbucks.com/A99FV
+<br>【百度密碼】：p6m6
 
 <br>【節目名稱】：講東講西.2017-11-21
 <br>【節目頻道】：香港電台.第一台
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：劉天賜 | 岑逸飛 | 鄭景鴻 | 鄭明仁
+<br>【節目話題】：香港報紙的生與死
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-11-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229247043
+<br>【MediaFire】：http://yamechanic.com/3ax8
+<br>【MediaFire】：http://www.linkbucks.com/A99C9
+<br>【百度網盤】：http://yamechanic.com/3azD
+<br>【百度網盤】：http://www.linkbucks.com/A99Ci
+<br>【百度密碼】：67bg
 
 <br>【節目名稱】：有冇搞錯.2017-11-21
 <br>【節目頻道】：香港電台.第二台
@@ -164,9 +164,9 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Rightable Wrong.2017-11-21
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229247297
+<br>【MediaFire】：http://yamechanic.com/3b1Z
+<br>【MediaFire】：http://www.linkbucks.com/A99CD
+<br>【百度網盤】：http://yamechanic.com/3b4O
+<br>【百度網盤】：http://www.linkbucks.com/A99Bh
+<br>【百度密碼】：2gif
