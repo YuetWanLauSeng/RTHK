@@ -20,12 +20,12 @@
 <br>【節目時間】：10:00 - 13:00
 <br>【檔案名稱】：Crazy And Happy.2017-11-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229365173
+<br>【MediaFire】：http://yamechanic.com/5wtq
+<br>【MediaFire】：http://www.linkbucks.com/BABPe
+<br>【百度網盤】：http://yamechanic.com/5wyG
+<br>【百度網盤】：http://www.linkbucks.com/BABO7
+<br>【百度密碼】：5igb
 
 <br>【節目名稱】：精靈一點.2017-11-23
 <br>【節目頻道】：香港電台.第一台
