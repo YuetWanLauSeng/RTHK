@@ -33,12 +33,12 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Healthpedia.2017-11-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229369751
+<br>【MediaFire】：http://yamechanic.com/6Bik
+<br>【MediaFire】：http://www.linkbucks.com/BAADH
+<br>【百度網盤】：http://yamechanic.com/6BkS
+<br>【百度網盤】：http://www.linkbucks.com/BAADG
+<br>【百度密碼】：d7d9
 
 <br>【節目名稱】：Made in Hong Kong 李志剛.2017-11-23
 <br>【節目頻道】：香港電台.第二台
@@ -46,12 +46,12 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Made In HK.2017-11-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229369783
+<br>【MediaFire】：http://yamechanic.com/6C1R
+<br>【MediaFire】：http://www.linkbucks.com/BAACR
+<br>【百度網盤】：http://yamechanic.com/6C3G
+<br>【百度網盤】：http://www.linkbucks.com/BAACJ
+<br>【百度密碼】：gamj
 
 <br>【節目名稱】：中國點點點.2017-11-23
 <br>【節目頻道】：香港電台.第一台
