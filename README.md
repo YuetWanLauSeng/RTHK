@@ -60,8 +60,8 @@
 <br>【檔案名稱】：China On The Dot.2017-11-23
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229382798
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://yamechanic.com/7Hhq
+<br>【MediaFire】：http://www.linkbucks.com/BAWll
 <br>【百度網盤】：http://yamechanic.com/6W5J
 <br>【百度網盤】：http://www.linkbucks.com/BARFu
 <br>【百度密碼】：jicr
@@ -73,8 +73,8 @@
 <br>【檔案名稱】：SeeSaw.2017-11-23
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229382879
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://yamechanic.com/7Hh0
+<br>【MediaFire】：http://www.linkbucks.com/BAWl3
 <br>【百度網盤】：http://yamechanic.com/6WCt
 <br>【百度網盤】：http://www.linkbucks.com/BARDM
 <br>【百度密碼】：tg73
@@ -86,8 +86,8 @@
 <br>【檔案名稱】：Four for Classics.2017-11-23
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229382839
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://yamechanic.com/7HgO
+<br>【MediaFire】：http://www.linkbucks.com/BAWmN
 <br>【百度網盤】：http://yamechanic.com/6WFu
 <br>【百度網盤】：http://www.linkbucks.com/BARCo
 <br>【百度密碼】：yruk
@@ -99,8 +99,8 @@
 <br>【檔案名稱】：Gimme 5.2017-11-23
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229382855
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://yamechanic.com/7Hfd
+<br>【MediaFire】：http://www.linkbucks.com/BAWmp
 <br>【百度網盤】：http://yamechanic.com/6WJ3
 <br>【百度網盤】：http://www.linkbucks.com/BARBN
 <br>【百度密碼】：7x5r
@@ -112,8 +112,8 @@
 <br>【檔案名稱】：Subtle Sensuality.2017-11-23
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229382880
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://yamechanic.com/7Het
+<br>【MediaFire】：http://www.linkbucks.com/BAWnT
 <br>【百度網盤】：http://yamechanic.com/6gfh
 <br>【百度網盤】：http://www.linkbucks.com/BALTr
 <br>【百度密碼】：p1jn
@@ -125,8 +125,8 @@
 <br>【檔案名稱】：Music Lover.2017-11-23
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229387440
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://yamechanic.com/7Hdq
+<br>【MediaFire】：http://www.linkbucks.com/BAWnl
 <br>【百度網盤】：http://yamechanic.com/6ghZ
 <br>【百度網盤】：http://www.linkbucks.com/BALR7
 <br>【百度密碼】：ui7c
@@ -138,25 +138,25 @@
 <br>【檔案名稱】：City Snapshot.2017-11-23
 <br>【節目版本】：未剪輯版
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229387381
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://yamechanic.com/6h9w
+<br>【MediaFire】：http://www.linkbucks.com/BALFr
 <br>【百度網盤】：http://yamechanic.com/6gjZ
 <br>【百度網盤】：http://www.linkbucks.com/BALRN
 <br>【百度密碼】：nm52
 
 <br>【節目名稱】：講東講西.2017-11-23
 <br>【節目頻道】：香港電台.第一台
-<br>【節目主持】：
-<br>【節目話題】：
+<br>【節目主持】：劉天賜 | 鄧達智 | 黃惠康 | 伍國光
+<br>【節目話題】：愛在情懷失禁的年代
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Free As The Wind.2017-11-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229392100
+<br>【MediaFire】：http://yamechanic.com/7HZN
+<br>【MediaFire】：http://www.linkbucks.com/BAWo6
+<br>【百度網盤】：http://yamechanic.com/7Hal
+<br>【百度網盤】：http://www.linkbucks.com/BAWoS
+<br>【百度密碼】：qfw2
 
 <br>【節目名稱】：有冇搞錯.2017-11-23
 <br>【節目頻道】：香港電台.第二台
@@ -164,9 +164,9 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Rightable Wrong.2017-11-23
 <br>【節目版本】：未剪輯版
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229392113
+<br>【MediaFire】：http://yamechanic.com/7Hbw
+<br>【MediaFire】：http://www.linkbucks.com/BAWn2
+<br>【百度網盤】：http://yamechanic.com/7Hd7
+<br>【百度網盤】：http://www.linkbucks.com/BAWnn
+<br>【百度密碼】：t6r6
